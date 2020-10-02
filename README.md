@@ -44,6 +44,10 @@ https://www.buzzfeed.com/br/guilhermelr/quiz-pagode-90-ou-shakespeare
 https://www.buzzfeed.com/br/audreyworboys/teste-quanto-conhecimento-totalmente-aleatorio-voce-tem
 
 
+* 📝Quem é você jogando Among Us?
+
+https://www.buzzfeed.com/br/priscilamendes/teste-quem-e-voce-jogando-among-us
+
 
 ## Comidas
 
