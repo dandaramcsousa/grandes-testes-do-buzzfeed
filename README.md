@@ -17,3 +17,6 @@ https://www.buzzfeed.com/br/luizougui/quiz-gado-demais
 
 * 📝Escolha uma pedra preciosa e receba um discurso motivacional da Pepita
 https://www.buzzfeed.com/br/luizougui/stories-pepita-escolha-pedra-preciosa
+
+* 📝Você consegue responder todas essas perguntas sem levar uma torta na cara?
+https://www.buzzfeed.com/br/saadmatheus/teste-chegar-final-torta-na-cara?bfsource=relatedmanual
