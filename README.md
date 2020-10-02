@@ -14,3 +14,6 @@ https://www.buzzfeed.com/br/perpetua/teste-forme-casais-ficticios-futuro-vida-am
 
 * 📝Você é gado demais ou de menos?
 https://www.buzzfeed.com/br/luizougui/quiz-gado-demais
+
+* 📝Escolha uma pedra preciosa e receba um discurso motivacional da Pepita
+https://www.buzzfeed.com/br/luizougui/stories-pepita-escolha-pedra-preciosa
