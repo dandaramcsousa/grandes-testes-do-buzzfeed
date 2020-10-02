@@ -100,3 +100,8 @@ https://www.buzzfeed.com/br/luizougui/teste-carro-comida-ovo-pamonha-sorvete
 
 https://www.buzzfeed.com/br/rafaelcapanema/de-quantas-comidas-polemicas-voce-gosta
 
+## Música
+
+* 🇪🇬 Você sabe cantar Faraó inteira?
+https://www.buzzfeed.com/br/gaiapassarelli/teste-letra-farao
+
