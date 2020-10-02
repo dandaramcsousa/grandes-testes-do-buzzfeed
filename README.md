@@ -49,6 +49,10 @@ https://www.buzzfeed.com/br/audreyworboys/teste-quanto-conhecimento-totalmente-a
 https://www.buzzfeed.com/br/davirocha/quantos-pontos-de-exclamacao-voce-e
 
 
+* 📝 Quem é você jogando Among Us?
+
+https://www.buzzfeed.com/br/priscilamendes/teste-quem-e-voce-jogando-among-us
+
 
 ## Comidas
 
