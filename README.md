@@ -8,6 +8,7 @@
 
 [Emojis](https://github.com/ikatyang/emoji-cheat-sheet/blob/master/README.md)
 
+## Geral
 
 * 📝 Escolha alguns cachorrinhos e diremos se você é introvertido(a) ou extrovertido(a)
 
@@ -19,24 +20,9 @@ https://www.buzzfeed.com/br/daniellaemanuel/teste-cachorrinhos-extrovertido-intr
 https://www.buzzfeed.com/br/perpetua/teste-forme-casais-ficticios-futuro-vida-amorosa
 
 
-* 📝 Você é gado demais ou de menos?
-
-https://www.buzzfeed.com/br/luizougui/quiz-gado-demais
-
-
 * 📝 Escolha uma pedra preciosa e receba um discurso motivacional da Pepita
 
 https://www.buzzfeed.com/br/luizougui/stories-pepita-escolha-pedra-preciosa
-
-
-* 📝 Você consegue responder todas essas perguntas sem levar uma torta na cara?
-
-https://www.buzzfeed.com/br/saadmatheus/teste-chegar-final-torta-na-cara?bfsource=relatedmanual
-
-
-* 📝 Você consegue acertar quem disse isso: grupo de pagode anos 90 ou Shakespeare?
-
-https://www.buzzfeed.com/br/guilhermelr/quiz-pagode-90-ou-shakespeare
 
 
 * 📝 Quanto conhecimento aleatório você tem?
@@ -44,18 +30,42 @@ https://www.buzzfeed.com/br/guilhermelr/quiz-pagode-90-ou-shakespeare
 https://www.buzzfeed.com/br/audreyworboys/teste-quanto-conhecimento-totalmente-aleatorio-voce-tem
 
 
-* 📝 Quantos pontos de exclamação é você?
+* 📝 Você é capaz de identificar as obras da Jane Austen a partir das descrições na Wikipedia?
+https://www.buzzfeed.com/br/gaiapassarelli/teste-filmes-jane-austen-wikipedia
 
-https://www.buzzfeed.com/br/davirocha/quantos-pontos-de-exclamacao-voce-e
 
+## Quem é você
 
 * 📝 Quem é você jogando Among Us?
 
 https://www.buzzfeed.com/br/priscilamendes/teste-quem-e-voce-jogando-among-us
 
 
-* 📝 Você é capaz de identificar as obras da Jane Austen a partir das descrições na Wikipedia?
-https://www.buzzfeed.com/br/gaiapassarelli/teste-filmes-jane-austen-wikipedia
+* 📝 Você é gado demais ou de menos?
+
+https://www.buzzfeed.com/br/luizougui/quiz-gado-demais
+
+
+* 📝 Quantos pontos de exclamação é você?
+
+https://www.buzzfeed.com/br/davirocha/quantos-pontos-de-exclamacao-voce-e
+
+
+* 📝 Quantos % irritado você está durante a quarentena?
+
+https://www.buzzfeed.com/br/fabianeahn/teste-irritado-durante-a-quarentena?bfsource=bfocompareon&bfsource=bfocompareon
+
+
+## Você consegue acertar?
+
+* 📝 Você consegue acertar quem disse isso: grupo de pagode anos 90 ou Shakespeare?
+
+https://www.buzzfeed.com/br/guilhermelr/quiz-pagode-90-ou-shakespeare
+
+
+* 📝 Você consegue responder todas essas perguntas sem levar uma torta na cara?
+
+https://www.buzzfeed.com/br/saadmatheus/teste-chegar-final-torta-na-cara?bfsource=relatedmanual
 
 
 * 👸 Consegue identificar estes 13 filmes da Disney pelas suas descrições da Wikipedia?
