@@ -58,6 +58,11 @@ https://www.buzzfeed.com/br/priscilamendes/teste-quem-e-voce-jogando-among-us
 https://www.buzzfeed.com/br/gaiapassarelli/teste-filmes-jane-austen-wikipedia
 
 
+* 👸 Consegue identificar estes 13 filmes da Disney pelas suas descrições da Wikipedia?
+
+https://www.buzzfeed.com/br/kaylayandoli/teste-filmes-disney-wikipedia
+
+
 ## Comidas
 
 * 🤢 Se você é chato para comer, este quiz pode te dar ânsia
