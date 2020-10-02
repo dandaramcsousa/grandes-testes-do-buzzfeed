@@ -6,7 +6,9 @@
 
 🚨 Para contribuir siga os exemplos dos outros testes aqui listados. Bom tour!
 
-* 📝[Escolha alguns cachorrinhos e diremos se você é introvertido(a) ou extrovertido(a)](https://www.buzzfeed.com/br/daniellaemanuel/teste-cachorrinhos-extrovertido-introvertido?bfsource=relatedmanual)
+* 📝Escolha alguns cachorrinhos e diremos se você é introvertido(a) ou extrovertido(a)
+https://www.buzzfeed.com/br/daniellaemanuel/teste-cachorrinhos-extrovertido-introvertido?bfsource=relatedmanual
 
-* 📝[Forme casais fictícios e revelaremos como estará sua vida amorosa em um ano](https://www.buzzfeed.com/br/perpetua/teste-forme-casais-ficticios-futuro-vida-amorosa)
+* 📝Forme casais fictícios e revelaremos como estará sua vida amorosa em um ano
+https://www.buzzfeed.com/br/perpetua/teste-forme-casais-ficticios-futuro-vida-amorosa
 
