@@ -26,6 +26,9 @@ https://www.buzzfeed.com/br/saadmatheus/teste-chegar-final-torta-na-cara?bfsourc
 * 📝Você consegue acertar quem disse isso: grupo de pagode anos 90 ou Shakespeare?
 https://www.buzzfeed.com/br/guilhermelr/quiz-pagode-90-ou-shakespeare
 
+* 📝Quanto conhecimento aleatório você tem?
+https://www.buzzfeed.com/br/audreyworboys/teste-quanto-conhecimento-totalmente-aleatorio-voce-tem
+
 ## Comidas
 
 * 🤢 Se você é chato para comer, este quiz pode te dar ânsia
@@ -37,10 +40,14 @@ https://www.buzzfeed.com/br/luisaoguime/teste-corte-batata-frita?bfsource=relate
 * 🥔 Que purê é você? 
 https://www.buzzfeed.com/br/luizougui/teste-que-pure-e-voce-batata-aipim
 
-* 🍯 Coloque um acompanhamento por cima destes 20 alimentos e vamos adivinhar sua idade com 99% de precisão https://www.buzzfeed.com/br/daves4/teste-acompanhamento-comida-idade
+* 🍯 Coloque um acompanhamento por cima destes 20 alimentos e vamos adivinhar sua idade com 99% de precisão 
+https://www.buzzfeed.com/br/daves4/teste-acompanhamento-comida-idade
 
 * 🥣 Diga se come essas comidas em prato ou tigela e te diremos sua idade psicológica
 https://www.buzzfeed.com/br/sarahaspler/prato-ou-tigela-idade
+
+* 🚗 Que carro de venda de comida é você?
+https://www.buzzfeed.com/br/luizougui/teste-carro-comida-ovo-pamonha-sorvete
 
 * 🤯 De quantas comidas POLÊMICAS você gosta?
 https://www.buzzfeed.com/br/rafaelcapanema/de-quantas-comidas-polemicas-voce-gosta
