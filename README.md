@@ -6,6 +6,8 @@
 
 🚨 Para contribuir siga os exemplos dos outros testes aqui listados. Bom tour!
 
+[Emojis](https://github.com/ikatyang/emoji-cheat-sheet/blob/master/README.md)
+
 * 📝Escolha alguns cachorrinhos e diremos se você é introvertido(a) ou extrovertido(a)
 https://www.buzzfeed.com/br/daniellaemanuel/teste-cachorrinhos-extrovertido-introvertido?bfsource=relatedmanual
 
@@ -27,7 +29,7 @@ https://www.buzzfeed.com/br/guilhermelr/quiz-pagode-90-ou-shakespeare
 ## Comidas
 
 * 🤢 Se você é chato para comer, este quiz pode te dar ânsia
-(https://www.buzzfeed.com/br/andrewziegler/enquete-escolha-comidas-nojentas)
+https://www.buzzfeed.com/br/andrewziegler/enquete-escolha-comidas-nojentas
 
 * 🍟 Que tipo de batata frita mais combina com você? 
 https://www.buzzfeed.com/br/luisaoguime/teste-corte-batata-frita?bfsource=relatedmanual
