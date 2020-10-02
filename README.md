@@ -110,3 +110,8 @@ https://www.buzzfeed.com/br/rafaelcapanema/de-quantas-comidas-polemicas-voce-gos
 
 https://www.buzzfeed.com/br/saadmatheus/teste-qual-comida-com-nome-de-gente-voce-e
 
+
+## Música
+
+* 🇪🇬 Você sabe cantar Faraó inteira?
+https://www.buzzfeed.com/br/gaiapassarelli/teste-letra-farao
