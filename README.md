@@ -12,3 +12,18 @@ https://www.buzzfeed.com/br/daniellaemanuel/teste-cachorrinhos-extrovertido-intr
 * 📝Forme casais fictícios e revelaremos como estará sua vida amorosa em um ano
 https://www.buzzfeed.com/br/perpetua/teste-forme-casais-ficticios-futuro-vida-amorosa
 
+## Comidas
+
+* 🤢 Se você é chato para comer, este quiz pode te dar ânsia
+(https://www.buzzfeed.com/br/andrewziegler/enquete-escolha-comidas-nojentas)
+
+* 🍟 Que tipo de batata frita mais combina com você? 
+https://www.buzzfeed.com/br/luisaoguime/teste-corte-batata-frita?bfsource=relatedmanual
+
+* 🥔 Que purê é você? 
+https://www.buzzfeed.com/br/luizougui/teste-que-pure-e-voce-batata-aipim
+
+* 🍯 Coloque um acompanhamento por cima destes 20 alimentos e vamos adivinhar sua idade com 99% de precisão https://www.buzzfeed.com/br/daves4/teste-acompanhamento-comida-idade
+
+* 🥣 Diga se come essas comidas em prato ou tigela e te diremos sua idade psicológica
+https://www.buzzfeed.com/br/sarahaspler/prato-ou-tigela-idade
