@@ -58,6 +58,11 @@ https://www.buzzfeed.com/br/priscilamendes/teste-quem-e-voce-jogando-among-us
 https://www.buzzfeed.com/br/gaiapassarelli/teste-filmes-jane-austen-wikipedia
 
 
+* 👸 Consegue identificar estes 13 filmes da Disney pelas suas descrições da Wikipedia?
+
+https://www.buzzfeed.com/br/kaylayandoli/teste-filmes-disney-wikipedia
+
+
 ## Comidas
 
 * 🤢 Se você é chato para comer, este quiz pode te dar ânsia
@@ -100,8 +105,13 @@ https://www.buzzfeed.com/br/luizougui/teste-carro-comida-ovo-pamonha-sorvete
 
 https://www.buzzfeed.com/br/rafaelcapanema/de-quantas-comidas-polemicas-voce-gosta
 
+
+* 🥑 Qual comida com nome de gente você é?
+
+https://www.buzzfeed.com/br/saadmatheus/teste-qual-comida-com-nome-de-gente-voce-e
+
+
 ## Música
 
 * 🇪🇬 Você sabe cantar Faraó inteira?
 https://www.buzzfeed.com/br/gaiapassarelli/teste-letra-farao
-
