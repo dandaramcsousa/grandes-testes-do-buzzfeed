@@ -12,3 +12,5 @@ https://www.buzzfeed.com/br/daniellaemanuel/teste-cachorrinhos-extrovertido-intr
 * 📝Forme casais fictícios e revelaremos como estará sua vida amorosa em um ano
 https://www.buzzfeed.com/br/perpetua/teste-forme-casais-ficticios-futuro-vida-amorosa
 
+* 📝Você é gado demais ou de menos?
+https://www.buzzfeed.com/br/luizougui/quiz-gado-demais
