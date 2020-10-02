@@ -20,3 +20,6 @@ https://www.buzzfeed.com/br/luizougui/stories-pepita-escolha-pedra-preciosa
 
 * 📝Você consegue responder todas essas perguntas sem levar uma torta na cara?
 https://www.buzzfeed.com/br/saadmatheus/teste-chegar-final-torta-na-cara?bfsource=relatedmanual
+
+* 📝Você consegue acertar quem disse isso: grupo de pagode anos 90 ou Shakespeare?
+https://www.buzzfeed.com/br/guilhermelr/quiz-pagode-90-ou-shakespeare
