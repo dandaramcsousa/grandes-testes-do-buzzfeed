@@ -40,3 +40,6 @@ https://www.buzzfeed.com/br/luizougui/teste-que-pure-e-voce-batata-aipim
 * 🥣 Diga se come essas comidas em prato ou tigela e te diremos sua idade psicológica
 https://www.buzzfeed.com/br/sarahaspler/prato-ou-tigela-idade
 
+* 🤯 De quantas comidas POLÊMICAS você gosta?
+https://www.buzzfeed.com/br/rafaelcapanema/de-quantas-comidas-polemicas-voce-gosta
+
