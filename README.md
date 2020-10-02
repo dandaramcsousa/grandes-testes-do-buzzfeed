@@ -9,39 +9,44 @@
 [Emojis](https://github.com/ikatyang/emoji-cheat-sheet/blob/master/README.md)
 
 
-* 📝Escolha alguns cachorrinhos e diremos se você é introvertido(a) ou extrovertido(a)
+* 📝 Escolha alguns cachorrinhos e diremos se você é introvertido(a) ou extrovertido(a)
 
 https://www.buzzfeed.com/br/daniellaemanuel/teste-cachorrinhos-extrovertido-introvertido?bfsource=relatedmanual
 
 
-* 📝Forme casais fictícios e revelaremos como estará sua vida amorosa em um ano
+* 📝 Forme casais fictícios e revelaremos como estará sua vida amorosa em um ano
 
 https://www.buzzfeed.com/br/perpetua/teste-forme-casais-ficticios-futuro-vida-amorosa
 
 
-* 📝Você é gado demais ou de menos?
+* 📝 Você é gado demais ou de menos?
 
 https://www.buzzfeed.com/br/luizougui/quiz-gado-demais
 
 
-* 📝Escolha uma pedra preciosa e receba um discurso motivacional da Pepita
+* 📝 Escolha uma pedra preciosa e receba um discurso motivacional da Pepita
 
 https://www.buzzfeed.com/br/luizougui/stories-pepita-escolha-pedra-preciosa
 
 
-* 📝Você consegue responder todas essas perguntas sem levar uma torta na cara?
+* 📝 Você consegue responder todas essas perguntas sem levar uma torta na cara?
 
 https://www.buzzfeed.com/br/saadmatheus/teste-chegar-final-torta-na-cara?bfsource=relatedmanual
 
 
-* 📝Você consegue acertar quem disse isso: grupo de pagode anos 90 ou Shakespeare?
+* 📝 Você consegue acertar quem disse isso: grupo de pagode anos 90 ou Shakespeare?
 
 https://www.buzzfeed.com/br/guilhermelr/quiz-pagode-90-ou-shakespeare
 
 
-* 📝Quanto conhecimento aleatório você tem?
+* 📝 Quanto conhecimento aleatório você tem?
 
 https://www.buzzfeed.com/br/audreyworboys/teste-quanto-conhecimento-totalmente-aleatorio-voce-tem
+
+
+* 📝 Quantos pontos de exclamação é você?
+
+https://www.buzzfeed.com/br/davirocha/quantos-pontos-de-exclamacao-voce-e
 
 
 
@@ -52,10 +57,15 @@ https://www.buzzfeed.com/br/audreyworboys/teste-quanto-conhecimento-totalmente-a
 https://www.buzzfeed.com/br/andrewziegler/enquete-escolha-comidas-nojentas
 
 
+
+* 🥔 Que tipo de batata é você?
+
+https://www.buzzfeed.com/br/gracegrace24/teste-que-tipo-de-batata
+
+
 * 🍟 Que tipo de batata frita mais combina com você? 
 
 https://www.buzzfeed.com/br/luisaoguime/teste-corte-batata-frita?bfsource=relatedmanual
-
 
 
 * 🥔 Que purê é você? 
