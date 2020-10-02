@@ -54,7 +54,7 @@ https://www.buzzfeed.com/br/davirocha/quantos-pontos-de-exclamacao-voce-e
 https://www.buzzfeed.com/br/priscilamendes/teste-quem-e-voce-jogando-among-us
 
 
-* 📝Você é capaz de identificar as obras da Jane Austen a partir das descrições na Wikipedia?
+* 📝 Você é capaz de identificar as obras da Jane Austen a partir das descrições na Wikipedia?
 https://www.buzzfeed.com/br/gaiapassarelli/teste-filmes-jane-austen-wikipedia
 
 
