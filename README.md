@@ -10,60 +10,60 @@
 
 ## Geral
 
-* 📝 Escolha alguns cachorrinhos e diremos se você é introvertido(a) ou extrovertido(a)
+* :dog: Escolha alguns cachorrinhos e diremos se você é introvertido(a) ou extrovertido(a)
 
 https://www.buzzfeed.com/br/daniellaemanuel/teste-cachorrinhos-extrovertido-introvertido?bfsource=relatedmanual
 
 
-* 📝 Forme casais fictícios e revelaremos como estará sua vida amorosa em um ano
+* :hearts: Forme casais fictícios e revelaremos como estará sua vida amorosa em um ano
 
 https://www.buzzfeed.com/br/perpetua/teste-forme-casais-ficticios-futuro-vida-amorosa
 
 
-* 📝 Escolha uma pedra preciosa e receba um discurso motivacional da Pepita
+* :gem: Escolha uma pedra preciosa e receba um discurso motivacional da Pepita
 
 https://www.buzzfeed.com/br/luizougui/stories-pepita-escolha-pedra-preciosa
 
 
-* 📝 Quanto conhecimento aleatório você tem?
+* :thinking: Quanto conhecimento aleatório você tem?
 
 https://www.buzzfeed.com/br/audreyworboys/teste-quanto-conhecimento-totalmente-aleatorio-voce-tem
 
 
-* 📝 Você é capaz de identificar as obras da Jane Austen a partir das descrições na Wikipedia?
+* :books: Você é capaz de identificar as obras da Jane Austen a partir das descrições na Wikipedia?
 https://www.buzzfeed.com/br/gaiapassarelli/teste-filmes-jane-austen-wikipedia
 
 
 ## Quem é você
 
-* 📝 Quem é você jogando Among Us?
+* :astronaut: Quem é você jogando Among Us?
 
 https://www.buzzfeed.com/br/priscilamendes/teste-quem-e-voce-jogando-among-us
 
 
-* 📝 Você é gado demais ou de menos?
+* :ox: Você é gado demais ou de menos?
 
 https://www.buzzfeed.com/br/luizougui/quiz-gado-demais
 
 
-* 📝 Quantos pontos de exclamação é você?
+* :bangbang: Quantos pontos de exclamação é você?
 
 https://www.buzzfeed.com/br/davirocha/quantos-pontos-de-exclamacao-voce-e
 
 
-* 📝 Quantos % irritado você está durante a quarentena?
+* :rage: Quantos % irritado você está durante a quarentena?
 
 https://www.buzzfeed.com/br/fabianeahn/teste-irritado-durante-a-quarentena?bfsource=bfocompareon&bfsource=bfocompareon
 
 
 ## Você consegue acertar?
 
-* 📝 Você consegue acertar quem disse isso: grupo de pagode anos 90 ou Shakespeare?
+* :speech_balloon: Você consegue acertar quem disse isso: grupo de pagode anos 90 ou Shakespeare?
 
 https://www.buzzfeed.com/br/guilhermelr/quiz-pagode-90-ou-shakespeare
 
 
-* 📝 Você consegue responder todas essas perguntas sem levar uma torta na cara?
+* :birthday: Você consegue responder todas essas perguntas sem levar uma torta na cara?
 
 https://www.buzzfeed.com/br/saadmatheus/teste-chegar-final-torta-na-cara?bfsource=relatedmanual
 
