@@ -125,6 +125,9 @@ https://www.buzzfeed.com/br/rafaelcapanema/de-quantas-comidas-polemicas-voce-gos
 
 https://www.buzzfeed.com/br/saadmatheus/teste-qual-comida-com-nome-de-gente-voce-e
 
+* 🤔 O que tem na geladeira?
+
+https://www.buzzfeed.com/br/davirocha/teste-o-que-tem-na-geladeira
 
 ## Música
 
