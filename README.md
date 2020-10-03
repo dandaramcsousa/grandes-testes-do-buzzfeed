@@ -124,4 +124,10 @@ https://www.buzzfeed.com/br/saadmatheus/teste-qual-comida-com-nome-de-gente-voce
 ## Música
 
 * 🇪🇬 Você sabe cantar Faraó inteira?
+
 https://www.buzzfeed.com/br/gaiapassarelli/teste-letra-farao
+
+
+* 🌈 Qual era da Lady Gaga mais combina com você?
+
+https://www.buzzfeed.com/br/saadmatheus/teste-qual-era-lady-gaga-e-voce
