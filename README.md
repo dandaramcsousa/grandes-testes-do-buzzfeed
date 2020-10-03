@@ -63,6 +63,10 @@ https://www.buzzfeed.com/br/luizougui/teste-que-animal-de-roupinha-e-voce
 
 https://www.buzzfeed.com/br/saadmatheus/teste-qual-orgao-fofinho-voce-e
 
+* :princess: Decore um apartamento e diremos qual princesa da Disney você é
+
+https://www.buzzfeed.com/br/anjalipatel/decore-um-apartamento-e-diremos-qual-princesa-da-disney#.igw5ONxYLW
+
 
 ## Você consegue acertar?
 
