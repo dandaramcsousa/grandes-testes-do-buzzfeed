@@ -76,6 +76,9 @@ https://www.buzzfeed.com/br/saadmatheus/teste-quao-marilda-voce-e
 https://www.buzzfeed.com/br/anjalipatel/decore-um-apartamento-e-diremos-qual-princesa-da-disney#.igw5ONxYLW
 
 
+*  💼 Planeje uma festa e te diremos qual seria seu emprego dos sonhos
+https://www.buzzfeed.com/br/michelleno/teste-planeje-uma-festa-emprego-dos-sonhos
+
 ## Você consegue acertar?
 
 * :speech_balloon: Você consegue acertar quem disse isso: grupo de pagode anos 90 ou Shakespeare?
