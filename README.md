@@ -33,6 +33,9 @@ https://www.buzzfeed.com/br/audreyworboys/teste-quanto-conhecimento-totalmente-a
 * :books: Você é capaz de identificar as obras da Jane Austen a partir das descrições na Wikipedia?
 https://www.buzzfeed.com/br/gaiapassarelli/teste-filmes-jane-austen-wikipedia
 
+* :tv: Qual nome de novela define sua vida amorosa?
+https://www.buzzfeed.com/br/saadmatheus/teste-nome-novela-define-vida-amorosa
+
 
 ## Quem é você
 
@@ -153,6 +156,10 @@ https://www.buzzfeed.com/br/saadmatheus/teste-qual-comida-com-nome-de-gente-voce
 * 🤔 O que tem na geladeira?
 
 https://www.buzzfeed.com/br/davirocha/teste-o-que-tem-na-geladeira
+
+* :monocle_face: Escolha entre estes alimentos e diremos se você é uma pessoa bagunceira ou arrumadinha
+
+https://www.buzzfeed.com/br/joannaborns/teste-alimentos-diremos-bagunceiro-arrumadinho
 
 ## Música
 
