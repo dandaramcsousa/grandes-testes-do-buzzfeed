@@ -31,7 +31,12 @@ https://www.buzzfeed.com/br/audreyworboys/teste-quanto-conhecimento-totalmente-a
 
 
 * :books: Você é capaz de identificar as obras da Jane Austen a partir das descrições na Wikipedia?
+
 https://www.buzzfeed.com/br/gaiapassarelli/teste-filmes-jane-austen-wikipedia
+
+* :popcorn: Julgue estas adaptações live action e te indicaremos um filme cult
+
+https://www.buzzfeed.com/br/luizougui/filmes-adaptacao-live-action-cults
 
 
 ## Quem é você
