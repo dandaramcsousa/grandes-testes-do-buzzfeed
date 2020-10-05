@@ -76,6 +76,11 @@ https://www.buzzfeed.com/br/saadmatheus/teste-quao-marilda-voce-e
 https://www.buzzfeed.com/br/anjalipatel/decore-um-apartamento-e-diremos-qual-princesa-da-disney#.igw5ONxYLW
 
 
+* :full_moon_with_face: Que fase da Lua é você?
+
+https://www.buzzfeed.com/br/luizougui/teste-fases-da-lua-personalidade
+
+
 ## Você consegue acertar?
 
 * :speech_balloon: Você consegue acertar quem disse isso: grupo de pagode anos 90 ou Shakespeare?
