@@ -75,6 +75,13 @@ https://www.buzzfeed.com/br/saadmatheus/teste-quao-marilda-voce-e
 
 https://www.buzzfeed.com/br/anjalipatel/decore-um-apartamento-e-diremos-qual-princesa-da-disney#.igw5ONxYLW
 
+* Qual nome de novela define sua vida amorosa?
+
+https://www.buzzfeed.com/br/saadmatheus/teste-nome-novela-define-vida-amorosa
+
+* Você conseguiria morar com um virgininano?
+
+https://www.buzzfeed.com/br/saadmatheus/teste-voce-conseguiria-morar-signo-virgem
 
 ## Você consegue acertar?
 
@@ -97,6 +104,9 @@ https://www.buzzfeed.com/br/kaylayandoli/teste-filmes-disney-wikipedia
 
 https://www.buzzfeed.com/br/saadmatheus/teste-acertar-cor-verdadeira-esmaltes
 
+* Eu misturei o rosto de 16 celebridades – você sabe quais são as combinações?
+
+https://www.buzzfeed.com/br/spenceralthouse/teste-rostos-celebridades-misturados
 
 ## Comidas
 
@@ -164,3 +174,7 @@ https://www.buzzfeed.com/br/saadmatheus/teste-qual-era-lady-gaga-e-voce
 * 🎧 Seu gosto musical é de outra epoca?
 
 https://www.buzzfeed.com/br/susanacristalli/teste-musicas-antiga
+
+* Você sabe mais do que um graduado em música?
+
+https://www.buzzfeed.com/br/kaikamryn/teste-sabe-mais-formado-musica
