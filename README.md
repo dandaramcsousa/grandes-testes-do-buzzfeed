@@ -105,7 +105,7 @@ https://www.buzzfeed.com/br/saadmatheus/teste-acertar-cor-verdadeira-esmaltes
 
 ## Comidas
 
-* 🤢 Se você é chato para comer, este quiz pode te dar ânsia
+* 🤢 Se você é chato para comer, este quiz pode te dar ânsia👨‍🎤
 
 https://www.buzzfeed.com/br/andrewziegler/enquete-escolha-comidas-nojentas
 
@@ -169,3 +169,7 @@ https://www.buzzfeed.com/br/saadmatheus/teste-qual-era-lady-gaga-e-voce
 * 🎧 Seu gosto musical é de outra epoca?
 
 https://www.buzzfeed.com/br/susanacristalli/teste-musicas-antiga
+
+* 🎤 Será que conseguimos adivinhar sua idade com perguntas sobre música?
+
+https://www.buzzfeed.com/br/perpetua/sera-que-conseguimos-adivinhar-sua-idade-com-pergu
