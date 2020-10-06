@@ -21,9 +21,27 @@
 
 * :thinking: [Quanto conhecimento aleatório você tem?](https://www.buzzfeed.com/br/audreyworboys/teste-quanto-conhecimento-totalmente-aleatorio-voce-tem)
 
-
 * :books: [Você é capaz de identificar as obras da Jane Austen a partir das descrições na Wikipedia?](https://www.buzzfeed.com/br/gaiapassarelli/teste-filmes-jane-austen-wikipedia)
 
+* :thinking: Quanto você manja sobre os memes brasileiros? 
+
+https://www.buzzfeed.com/br/davirocha/quanto-voce-manja-sobre-os-memes-brasileiros
+
+* :hearts: Forme casais fictícios e revelaremos como estará sua vida amorosa em um ano
+
+https://www.buzzfeed.com/br/perpetua/monte-um-namorado-perfeito-e-nos-revelaremos-uma-v
+
+* :house_with_garden: Monte seu apê dos sonhos e te diremos sua verdadeira idade 
+
+https://www.buzzfeed.com/br/victornascimento/ape-dos-sonhos
+
+* :hushed: Descubra se você é privilegiado 
+
+https://www.buzzfeed.com/br/clarissapassos/voce-eh-privilegiado
+
+* :credit_card: Torre um cartão de crédito sem limite e descubra qual celebridade seria sua amiga
+
+https://www.buzzfeed.com/br/victornascimento/cartao-de-credito-sem-limite
 
 ## Quem é você
 
