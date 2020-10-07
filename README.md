@@ -73,6 +73,9 @@ https://www.buzzfeed.com/br/victornascimento/cartao-de-credito-sem-limite
 
 https://www.buzzfeed.com/br/luizougui/teste-fases-da-lua-personalidade
 
+* 🙆‍♀️ Você é mais Pabllo Vittar ou Pablo do arrocha?
+
+https://www.buzzfeed.com/br/raphaelevangelista/voce-e-mais-pabllo-vittar-ou-pablo-do-arrocha
 
 *  💼 Planeje uma festa e te diremos qual seria seu emprego dos sonhos
 
@@ -90,6 +93,10 @@ https://www.buzzfeed.com/br/michelleno/teste-planeje-uma-festa-emprego-dos-sonho
 
 
 * 💅 [Você consegue adivinhar a cor verdadeira destes esmaltes?](https://www.buzzfeed.com/br/saadmatheus/teste-acertar-cor-verdadeira-esmaltes)
+
+* 🛣 Você consegue ir tão longe quanto a Pabllo Vittar?
+
+https://www.buzzfeed.com/br/saadmatheus/teste-voce-consegue-ir-tao-longe-quanto-pabllo-vittar
 
 
 ## Comidas
@@ -130,5 +137,15 @@ https://www.buzzfeed.com/br/michelleno/teste-planeje-uma-festa-emprego-dos-sonho
 
 * 🌈 [Qual era da Lady Gaga mais combina com você?](https://www.buzzfeed.com/br/saadmatheus/teste-qual-era-lady-gaga-e-voce)
 
-
 * 🎧 [Seu gosto musical é de outra epoca?](https://www.buzzfeed.com/br/susanacristalli/teste-musicas-antiga)
+
+* 💅 Que Pabllo Vittar é você?
+
+https://www.buzzfeed.com/br/julianakataoka/que-pabllo-vittar-e-voce
+
+* 🎂 Você está de parabéns?
+
+https://www.buzzfeed.com/br/luizougui/teste-esta-de-parabens-pabllo-vittar-psirico
+
+
+
