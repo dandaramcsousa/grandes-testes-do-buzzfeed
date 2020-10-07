@@ -10,152 +10,128 @@
 
 ## Geral
 
-* :dog: Escolha alguns cachorrinhos e diremos se você é introvertido(a) ou extrovertido(a)
-
-https://www.buzzfeed.com/br/daniellaemanuel/teste-cachorrinhos-extrovertido-introvertido?bfsource=relatedmanual
+* :dog: [Escolha alguns cachorrinhos e diremos se você é introvertido(a) ou extrovertido(a)](https://www.buzzfeed.com/br/daniellaemanuel/teste-cachorrinhos-extrovertido-introvertido?bfsource=relatedmanual)
 
 
-* :hearts: Forme casais fictícios e revelaremos como estará sua vida amorosa em um ano
-
-https://www.buzzfeed.com/br/perpetua/teste-forme-casais-ficticios-futuro-vida-amorosa
+* :hearts: [Forme casais fictícios e revelaremos como estará sua vida amorosa em um ano](https://www.buzzfeed.com/br/perpetua/teste-forme-casais-ficticios-futuro-vida-amorosa)
 
 
-* :gem: Escolha uma pedra preciosa e receba um discurso motivacional da Pepita
-
-https://www.buzzfeed.com/br/luizougui/stories-pepita-escolha-pedra-preciosa
+* :gem: [Escolha uma pedra preciosa e receba um discurso motivacional da Pepita](https://www.buzzfeed.com/br/luizougui/stories-pepita-escolha-pedra-preciosa)
 
 
-* :thinking: Quanto conhecimento aleatório você tem?
+* :thinking: [Quanto conhecimento aleatório você tem?](https://www.buzzfeed.com/br/audreyworboys/teste-quanto-conhecimento-totalmente-aleatorio-voce-tem)
 
-https://www.buzzfeed.com/br/audreyworboys/teste-quanto-conhecimento-totalmente-aleatorio-voce-tem
+* :books: [Você é capaz de identificar as obras da Jane Austen a partir das descrições na Wikipedia?](https://www.buzzfeed.com/br/gaiapassarelli/teste-filmes-jane-austen-wikipedia)
 
+* :thinking: Quanto você manja sobre os memes brasileiros? 
 
-* :books: Você é capaz de identificar as obras da Jane Austen a partir das descrições na Wikipedia?
-https://www.buzzfeed.com/br/gaiapassarelli/teste-filmes-jane-austen-wikipedia
+https://www.buzzfeed.com/br/davirocha/quanto-voce-manja-sobre-os-memes-brasileiros
 
 * :tv: Qual nome de novela define sua vida amorosa?
 https://www.buzzfeed.com/br/saadmatheus/teste-nome-novela-define-vida-amorosa
 
+* :hearts: Forme casais fictícios e revelaremos como estará sua vida amorosa em um ano
+
+https://www.buzzfeed.com/br/perpetua/monte-um-namorado-perfeito-e-nos-revelaremos-uma-v
+
+* :house_with_garden: Monte seu apê dos sonhos e te diremos sua verdadeira idade 
+
+https://www.buzzfeed.com/br/victornascimento/ape-dos-sonhos
+
+* :hushed: Descubra se você é privilegiado 
+
+https://www.buzzfeed.com/br/clarissapassos/voce-eh-privilegiado
+
+* :credit_card: Torre um cartão de crédito sem limite e descubra qual celebridade seria sua amiga
+
+https://www.buzzfeed.com/br/victornascimento/cartao-de-credito-sem-limite
 
 ## Quem é você
 
-* :astronaut: Quem é você jogando Among Us?
-
-https://www.buzzfeed.com/br/priscilamendes/teste-quem-e-voce-jogando-among-us
+* :astronaut: [Quem é você jogando Among Us?](https://www.buzzfeed.com/br/priscilamendes/teste-quem-e-voce-jogando-among-us)
 
 
-* :ox: Você é gado demais ou de menos?
-
-https://www.buzzfeed.com/br/luizougui/quiz-gado-demais
+* :ox: [Você é gado demais ou de menos?](https://www.buzzfeed.com/br/luizougui/quiz-gado-demais)
 
 
-* :bangbang: Quantos pontos de exclamação é você?
-
-https://www.buzzfeed.com/br/davirocha/quantos-pontos-de-exclamacao-voce-e
+* :bangbang: [Quantos pontos de exclamação é você?](https://www.buzzfeed.com/br/davirocha/quantos-pontos-de-exclamacao-voce-e)
 
 
-* :rage: Quantos % irritado você está durante a quarentena?
-
-https://www.buzzfeed.com/br/fabianeahn/teste-irritado-durante-a-quarentena?bfsource=bfocompareon&bfsource=bfocompareon
+* :rage: [Quantos % irritado você está durante a quarentena?](https://www.buzzfeed.com/br/fabianeahn/teste-irritado-durante-a-quarentena?bfsource=bfocompareon&bfsource=bfocompareon)
 
 
-* 🦔 Que animal de roupinha é você?
-
-https://www.buzzfeed.com/br/luizougui/teste-que-animal-de-roupinha-e-voce
+* 🦔 [Que animal de roupinha é você?](https://www.buzzfeed.com/br/luizougui/teste-que-animal-de-roupinha-e-voce)
 
 
-* 🥺 Qual órgão fofo mais te representa?
-
-https://www.buzzfeed.com/br/saadmatheus/teste-qual-orgao-fofinho-voce-e
+* 🥺 [Qual órgão fofo mais te representa?](https://www.buzzfeed.com/br/saadmatheus/teste-qual-orgao-fofinho-voce-e)
 
 
-* 🧓 Quão Marilda você é?
-
-https://www.buzzfeed.com/br/saadmatheus/teste-quao-marilda-voce-e
+* 🧓 [Quão Marilda você é?](https://www.buzzfeed.com/br/saadmatheus/teste-quao-marilda-voce-e)
 
 
-* :princess: Decore um apartamento e diremos qual princesa da Disney você é
-
-https://www.buzzfeed.com/br/anjalipatel/decore-um-apartamento-e-diremos-qual-princesa-da-disney#.igw5ONxYLW
+* :princess: [Decore um apartamento e diremos qual princesa da Disney você é](https://www.buzzfeed.com/br/anjalipatel/decore-um-apartamento-e-diremos-qual-princesa-da-disney#.igw5ONxYLW)
 
 
 * :full_moon_with_face: Que fase da Lua é você?
 
 https://www.buzzfeed.com/br/luizougui/teste-fases-da-lua-personalidade
 
+* 🙆‍♀️ Você é mais Pabllo Vittar ou Pablo do arrocha?
+
+https://www.buzzfeed.com/br/raphaelevangelista/voce-e-mais-pabllo-vittar-ou-pablo-do-arrocha
+
+*  💼 Planeje uma festa e te diremos qual seria seu emprego dos sonhos
+
+https://www.buzzfeed.com/br/michelleno/teste-planeje-uma-festa-emprego-dos-sonhos
 
 ## Você consegue acertar?
 
-* :speech_balloon: Você consegue acertar quem disse isso: grupo de pagode anos 90 ou Shakespeare?
-
-https://www.buzzfeed.com/br/guilhermelr/quiz-pagode-90-ou-shakespeare
+* :speech_balloon: [Você consegue acertar quem disse isso: grupo de pagode anos 90 ou Shakespeare?](https://www.buzzfeed.com/br/guilhermelr/quiz-pagode-90-ou-shakespeare)
 
 
-* :birthday: Você consegue responder todas essas perguntas sem levar uma torta na cara?
-
-https://www.buzzfeed.com/br/saadmatheus/teste-chegar-final-torta-na-cara?bfsource=relatedmanual
+* :birthday: [Você consegue responder todas essas perguntas sem levar uma torta na cara?](https://www.buzzfeed.com/br/saadmatheus/teste-chegar-final-torta-na-cara?bfsource=relatedmanual)
 
 
-* 👸 Consegue identificar estes 13 filmes da Disney pelas suas descrições da Wikipedia?
-
-https://www.buzzfeed.com/br/kaylayandoli/teste-filmes-disney-wikipedia
+* 👸 [Consegue identificar estes 13 filmes da Disney pelas suas descrições da Wikipedia?](https://www.buzzfeed.com/br/kaylayandoli/teste-filmes-disney-wikipedia)
 
 
-* 💅 Você consegue adivinhar a cor verdadeira destes esmaltes?
+* 💅 [Você consegue adivinhar a cor verdadeira destes esmaltes?](https://www.buzzfeed.com/br/saadmatheus/teste-acertar-cor-verdadeira-esmaltes)
 
-https://www.buzzfeed.com/br/saadmatheus/teste-acertar-cor-verdadeira-esmaltes
+* 🛣 Você consegue ir tão longe quanto a Pabllo Vittar?
+
+https://www.buzzfeed.com/br/saadmatheus/teste-voce-consegue-ir-tao-longe-quanto-pabllo-vittar
 
 
 ## Comidas
 
-* 🤢 Se você é chato para comer, este quiz pode te dar ânsia
-
-https://www.buzzfeed.com/br/andrewziegler/enquete-escolha-comidas-nojentas
+* 🤢 [Se você é chato para comer, este quiz pode te dar ânsia](https://www.buzzfeed.com/br/andrewziegler/enquete-escolha-comidas-nojentas)
 
 
 
-* 🥔 Que tipo de batata é você?
-
-https://www.buzzfeed.com/br/gracegrace24/teste-que-tipo-de-batata
+* 🥔 [Que tipo de batata é você?](https://www.buzzfeed.com/br/gracegrace24/teste-que-tipo-de-batata)
 
 
-* 🍟 Que tipo de batata frita mais combina com você? 
-
-https://www.buzzfeed.com/br/luisaoguime/teste-corte-batata-frita?bfsource=relatedmanual
+* 🍟 [Que tipo de batata frita mais combina com você?](https://www.buzzfeed.com/br/luisaoguime/teste-corte-batata-frita?bfsource=relatedmanual)
 
 
-* 🥔 Que purê é você? 
-
-https://www.buzzfeed.com/br/luizougui/teste-que-pure-e-voce-batata-aipim
+* 🥔 [Que purê é você?](https://www.buzzfeed.com/br/luizougui/teste-que-pure-e-voce-batata-aipim)
 
 
-* 🍯 Coloque um acompanhamento por cima destes 20 alimentos e vamos adivinhar sua idade com 99% de precisão 
-
-https://www.buzzfeed.com/br/daves4/teste-acompanhamento-comida-idade
+* 🍯 [Coloque um acompanhamento por cima destes 20 alimentos e vamos adivinhar sua idade com 99% de precisão](https://www.buzzfeed.com/br/daves4/teste-acompanhamento-comida-idade)
 
 
-* 🥣 Diga se come essas comidas em prato ou tigela e te diremos sua idade psicológica
-
-https://www.buzzfeed.com/br/sarahaspler/prato-ou-tigela-idade
+* 🥣 [Diga se come essas comidas em prato ou tigela e te diremos sua idade psicológica](https://www.buzzfeed.com/br/sarahaspler/prato-ou-tigela-idade)
 
 
-* 🚗 Que carro de venda de comida é você?
-
-https://www.buzzfeed.com/br/luizougui/teste-carro-comida-ovo-pamonha-sorvete
+* 🚗 [Que carro de venda de comida é você?](https://www.buzzfeed.com/br/luizougui/teste-carro-comida-ovo-pamonha-sorvete)
 
 
-* 🤯 De quantas comidas POLÊMICAS você gosta?
-
-https://www.buzzfeed.com/br/rafaelcapanema/de-quantas-comidas-polemicas-voce-gosta
+* 🤯 [De quantas comidas POLÊMICAS você gosta?](https://www.buzzfeed.com/br/rafaelcapanema/de-quantas-comidas-polemicas-voce-gosta)
 
 
-* 🥑 Qual comida com nome de gente você é?
+* 🥑 [Qual comida com nome de gente você é?](https://www.buzzfeed.com/br/saadmatheus/teste-qual-comida-com-nome-de-gente-voce-e)
 
-https://www.buzzfeed.com/br/saadmatheus/teste-qual-comida-com-nome-de-gente-voce-e
-
-* 🤔 O que tem na geladeira?
-
-https://www.buzzfeed.com/br/davirocha/teste-o-que-tem-na-geladeira
+* 🤔 [O que tem na geladeira?](https://www.buzzfeed.com/br/davirocha/teste-o-que-tem-na-geladeira)
 
 * :monocle_face: Escolha entre estes alimentos e diremos se você é uma pessoa bagunceira ou arrumadinha
 
@@ -163,16 +139,19 @@ https://www.buzzfeed.com/br/joannaborns/teste-alimentos-diremos-bagunceiro-arrum
 
 ## Música
 
-* 🇪🇬 Você sabe cantar Faraó inteira?
+* 🇪🇬 [Você sabe cantar Faraó inteira?](https://www.buzzfeed.com/br/gaiapassarelli/teste-letra-farao)
 
-https://www.buzzfeed.com/br/gaiapassarelli/teste-letra-farao
+* 🌈 [Qual era da Lady Gaga mais combina com você?](https://www.buzzfeed.com/br/saadmatheus/teste-qual-era-lady-gaga-e-voce)
+
+* 🎧 [Seu gosto musical é de outra epoca?](https://www.buzzfeed.com/br/susanacristalli/teste-musicas-antiga)
+
+* 💅 Que Pabllo Vittar é você?
+
+https://www.buzzfeed.com/br/julianakataoka/que-pabllo-vittar-e-voce
+
+* 🎂 Você está de parabéns?
+
+https://www.buzzfeed.com/br/luizougui/teste-esta-de-parabens-pabllo-vittar-psirico
 
 
-* 🌈 Qual era da Lady Gaga mais combina com você?
 
-https://www.buzzfeed.com/br/saadmatheus/teste-qual-era-lady-gaga-e-voce
-
-
-* 🎧 Seu gosto musical é de outra epoca?
-
-https://www.buzzfeed.com/br/susanacristalli/teste-musicas-antiga
