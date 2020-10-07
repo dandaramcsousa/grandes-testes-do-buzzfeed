@@ -27,6 +27,9 @@
 
 https://www.buzzfeed.com/br/davirocha/quanto-voce-manja-sobre-os-memes-brasileiros
 
+* :tv: Qual nome de novela define sua vida amorosa?
+https://www.buzzfeed.com/br/saadmatheus/teste-nome-novela-define-vida-amorosa
+
 * :hearts: Forme casais fictícios e revelaremos como estará sua vida amorosa em um ano
 
 https://www.buzzfeed.com/br/perpetua/monte-um-namorado-perfeito-e-nos-revelaremos-uma-v
@@ -130,10 +133,13 @@ https://www.buzzfeed.com/br/saadmatheus/teste-voce-consegue-ir-tao-longe-quanto-
 
 * 🤔 [O que tem na geladeira?](https://www.buzzfeed.com/br/davirocha/teste-o-que-tem-na-geladeira)
 
+* :monocle_face: Escolha entre estes alimentos e diremos se você é uma pessoa bagunceira ou arrumadinha
+
+https://www.buzzfeed.com/br/joannaborns/teste-alimentos-diremos-bagunceiro-arrumadinho
+
 ## Música
 
 * 🇪🇬 [Você sabe cantar Faraó inteira?](https://www.buzzfeed.com/br/gaiapassarelli/teste-letra-farao)
-
 
 * 🌈 [Qual era da Lady Gaga mais combina com você?](https://www.buzzfeed.com/br/saadmatheus/teste-qual-era-lady-gaga-e-voce)
 
