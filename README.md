@@ -74,6 +74,10 @@ https://www.buzzfeed.com/br/victornascimento/cartao-de-credito-sem-limite
 https://www.buzzfeed.com/br/luizougui/teste-fases-da-lua-personalidade
 
 
+*  💼 Planeje uma festa e te diremos qual seria seu emprego dos sonhos
+
+https://www.buzzfeed.com/br/michelleno/teste-planeje-uma-festa-emprego-dos-sonhos
+
 ## Você consegue acertar?
 
 * :speech_balloon: [Você consegue acertar quem disse isso: grupo de pagode anos 90 ou Shakespeare?](https://www.buzzfeed.com/br/guilhermelr/quiz-pagode-90-ou-shakespeare)
