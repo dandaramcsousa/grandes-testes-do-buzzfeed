@@ -27,6 +27,14 @@
 
 https://www.buzzfeed.com/br/davirocha/quanto-voce-manja-sobre-os-memes-brasileiros
 
+* :books: Você é capaz de identificar as obras da Jane Austen a partir das descrições na Wikipedia?
+
+https://www.buzzfeed.com/br/gaiapassarelli/teste-filmes-jane-austen-wikipedia
+
+* :popcorn: Julgue estas adaptações live action e te indicaremos um filme cult
+
+https://www.buzzfeed.com/br/luizougui/filmes-adaptacao-live-action-cults
+
 * :tv: Qual nome de novela define sua vida amorosa?
 https://www.buzzfeed.com/br/saadmatheus/teste-nome-novela-define-vida-amorosa
 
