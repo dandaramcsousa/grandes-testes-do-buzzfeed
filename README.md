@@ -68,6 +68,13 @@ https://www.buzzfeed.com/br/victornascimento/cartao-de-credito-sem-limite
 
 * 🧓 [Quão Marilda você é?](https://www.buzzfeed.com/br/saadmatheus/teste-quao-marilda-voce-e)
 
+* Qual nome de novela define sua vida amorosa?
+
+https://www.buzzfeed.com/br/saadmatheus/teste-nome-novela-define-vida-amorosa
+
+* Você conseguiria morar com um virgininano?
+
+https://www.buzzfeed.com/br/saadmatheus/teste-voce-conseguiria-morar-signo-virgem
 
 * :princess: [Decore um apartamento e diremos qual princesa da Disney você é](https://www.buzzfeed.com/br/anjalipatel/decore-um-apartamento-e-diremos-qual-princesa-da-disney#.igw5ONxYLW)
 
@@ -91,6 +98,9 @@ https://www.buzzfeed.com/br/michelleno/teste-planeje-uma-festa-emprego-dos-sonho
 
 * :birthday: [Você consegue responder todas essas perguntas sem levar uma torta na cara?](https://www.buzzfeed.com/br/saadmatheus/teste-chegar-final-torta-na-cara?bfsource=relatedmanual)
 
+* Eu misturei o rosto de 16 celebridades – você sabe quais são as combinações?
+
+https://www.buzzfeed.com/br/spenceralthouse/teste-rostos-celebridades-misturados
 
 * 👸 [Consegue identificar estes 13 filmes da Disney pelas suas descrições da Wikipedia?](https://www.buzzfeed.com/br/kaylayandoli/teste-filmes-disney-wikipedia)
 
@@ -149,9 +159,13 @@ https://www.buzzfeed.com/br/joannaborns/teste-alimentos-diremos-bagunceiro-arrum
 
 https://www.buzzfeed.com/br/julianakataoka/que-pabllo-vittar-e-voce
 
+
 * 🎂 Você está de parabéns?
 
 https://www.buzzfeed.com/br/luizougui/teste-esta-de-parabens-pabllo-vittar-psirico
 
 
+* Você sabe mais do que um graduado em música?
+
+https://www.buzzfeed.com/br/kaikamryn/teste-sabe-mais-formado-musica
 
