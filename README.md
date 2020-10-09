@@ -114,7 +114,7 @@ https://www.buzzfeed.com/br/saadmatheus/teste-voce-consegue-ir-tao-longe-quanto-
 
 ## Comidas
 
-* 🤢 [Se você é chato para comer, este quiz pode te dar ânsia](https://www.buzzfeed.com/br/andrewziegler/enquete-escolha-comidas-nojentas)
+* 🤢 [Se você é chato para comer, este quiz pode te dar ânsia 👨‍🎤](https://www.buzzfeed.com/br/andrewziegler/enquete-escolha-comidas-nojentas)
 
 
 
@@ -168,4 +168,9 @@ https://www.buzzfeed.com/br/luizougui/teste-esta-de-parabens-pabllo-vittar-psiri
 * Você sabe mais do que um graduado em música?
 
 https://www.buzzfeed.com/br/kaikamryn/teste-sabe-mais-formado-musica
+
+
+* 🎤 Será que conseguimos adivinhar sua idade com perguntas sobre música?
+
+https://www.buzzfeed.com/br/perpetua/sera-que-conseguimos-adivinhar-sua-idade-com-pergu
 
