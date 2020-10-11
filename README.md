@@ -23,36 +23,21 @@
 
 * :books: [Você é capaz de identificar as obras da Jane Austen a partir das descrições na Wikipedia?](https://www.buzzfeed.com/br/gaiapassarelli/teste-filmes-jane-austen-wikipedia)
 
-* :thinking: Quanto você manja sobre os memes brasileiros? 
+* :thinking: [Quanto você manja sobre os memes brasileiros?](https://www.buzzfeed.com/br/davirocha/quanto-voce-manja-sobre-os-memes-brasileiros)
 
-https://www.buzzfeed.com/br/davirocha/quanto-voce-manja-sobre-os-memes-brasileiros
+* :books: [Você é capaz de identificar as obras da Jane Austen a partir das descrições na Wikipedia?](https://www.buzzfeed.com/br/gaiapassarelli/teste-filmes-jane-austen-wikipedia)
 
-* :books: Você é capaz de identificar as obras da Jane Austen a partir das descrições na Wikipedia?
+* :popcorn: [Julgue estas adaptações live action e te indicaremos um filme cult](https://www.buzzfeed.com/br/luizougui/filmes-adaptacao-live-action-cults)
 
-https://www.buzzfeed.com/br/gaiapassarelli/teste-filmes-jane-austen-wikipedia
+* :tv: [Qual nome de novela define sua vida amorosa?](https://www.buzzfeed.com/br/saadmatheus/teste-nome-novela-define-vida-amorosa)
 
-* :popcorn: Julgue estas adaptações live action e te indicaremos um filme cult
+* :hearts: [Forme casais fictícios e revelaremos como estará sua vida amorosa em um ano](https://www.buzzfeed.com/br/perpetua/monte-um-namorado-perfeito-e-nos-revelaremos-uma-v)
 
-https://www.buzzfeed.com/br/luizougui/filmes-adaptacao-live-action-cults
+* :house_with_garden: [Monte seu apê dos sonhos e te diremos sua verdadeira idade](https://www.buzzfeed.com/br/victornascimento/ape-dos-sonhos)
 
-* :tv: Qual nome de novela define sua vida amorosa?
-https://www.buzzfeed.com/br/saadmatheus/teste-nome-novela-define-vida-amorosa
+* :hushed: [Descubra se você é privilegiado](https://www.buzzfeed.com/br/clarissapassos/voce-eh-privilegiado)
 
-* :hearts: Forme casais fictícios e revelaremos como estará sua vida amorosa em um ano
-
-https://www.buzzfeed.com/br/perpetua/monte-um-namorado-perfeito-e-nos-revelaremos-uma-v
-
-* :house_with_garden: Monte seu apê dos sonhos e te diremos sua verdadeira idade 
-
-https://www.buzzfeed.com/br/victornascimento/ape-dos-sonhos
-
-* :hushed: Descubra se você é privilegiado 
-
-https://www.buzzfeed.com/br/clarissapassos/voce-eh-privilegiado
-
-* :credit_card: Torre um cartão de crédito sem limite e descubra qual celebridade seria sua amiga
-
-https://www.buzzfeed.com/br/victornascimento/cartao-de-credito-sem-limite
+* :credit_card: [Torre um cartão de crédito sem limite e descubra qual celebridade seria sua amiga](https://www.buzzfeed.com/br/victornascimento/cartao-de-credito-sem-limite)
 
 ## Quem é você
 
@@ -76,28 +61,22 @@ https://www.buzzfeed.com/br/victornascimento/cartao-de-credito-sem-limite
 
 * 🧓 [Quão Marilda você é?](https://www.buzzfeed.com/br/saadmatheus/teste-quao-marilda-voce-e)
 
-* Qual nome de novela define sua vida amorosa?
+* :tv: [Qual nome de novela define sua vida amorosa?](https://www.buzzfeed.com/br/saadmatheus/teste-nome-novela-define-vida-amorosa)
 
-https://www.buzzfeed.com/br/saadmatheus/teste-nome-novela-define-vida-amorosa
-
-* Você conseguiria morar com um virgininano?
-
-https://www.buzzfeed.com/br/saadmatheus/teste-voce-conseguiria-morar-signo-virgem
+* :virgo: [Você conseguiria morar com um virgininano?](https://www.buzzfeed.com/br/saadmatheus/teste-voce-conseguiria-morar-signo-virgem)
 
 * :princess: [Decore um apartamento e diremos qual princesa da Disney você é](https://www.buzzfeed.com/br/anjalipatel/decore-um-apartamento-e-diremos-qual-princesa-da-disney#.igw5ONxYLW)
 
 
-* :full_moon_with_face: Que fase da Lua é você?
+* :full_moon_with_face: [Que fase da Lua é você?](https://www.buzzfeed.com/br/luizougui/teste-fases-da-lua-personalidade)
 
-https://www.buzzfeed.com/br/luizougui/teste-fases-da-lua-personalidade
+* 🙆‍♀️ [Você é mais Pabllo Vittar ou Pablo do arrocha?](https://www.buzzfeed.com/br/raphaelevangelista/voce-e-mais-pabllo-vittar-ou-pablo-do-arrocha)
 
-* 🙆‍♀️ Você é mais Pabllo Vittar ou Pablo do arrocha?
+*  💼 [Planeje uma festa e te diremos qual seria seu emprego dos sonhos](https://www.buzzfeed.com/br/michelleno/teste-planeje-uma-festa-emprego-dos-sonhos)
 
-https://www.buzzfeed.com/br/raphaelevangelista/voce-e-mais-pabllo-vittar-ou-pablo-do-arrocha
+* :innocent: [Qual o seu alinhamento moral?](https://www.buzzfeed.com/br/awesomer/qual-seu-alinhamento-moral)
 
-*  💼 Planeje uma festa e te diremos qual seria seu emprego dos sonhos
-
-https://www.buzzfeed.com/br/michelleno/teste-planeje-uma-festa-emprego-dos-sonhos
+* :raised_eyebrow: [Quão polêmico é você?](https://www.buzzfeed.com/br/gabrielsukita/quao-polemico-e-voce-comida)
 
 ## Você consegue acertar?
 
@@ -106,18 +85,16 @@ https://www.buzzfeed.com/br/michelleno/teste-planeje-uma-festa-emprego-dos-sonho
 
 * :birthday: [Você consegue responder todas essas perguntas sem levar uma torta na cara?](https://www.buzzfeed.com/br/saadmatheus/teste-chegar-final-torta-na-cara?bfsource=relatedmanual)
 
-* Eu misturei o rosto de 16 celebridades – você sabe quais são as combinações?
-
-https://www.buzzfeed.com/br/spenceralthouse/teste-rostos-celebridades-misturados
+* :thinking: [Eu misturei o rosto de 16 celebridades – você sabe quais são as combinações?](https://www.buzzfeed.com/br/spenceralthouse/teste-rostos-celebridades-misturados)
 
 * 👸 [Consegue identificar estes 13 filmes da Disney pelas suas descrições da Wikipedia?](https://www.buzzfeed.com/br/kaylayandoli/teste-filmes-disney-wikipedia)
 
 
 * 💅 [Você consegue adivinhar a cor verdadeira destes esmaltes?](https://www.buzzfeed.com/br/saadmatheus/teste-acertar-cor-verdadeira-esmaltes)
 
-* 🛣 Você consegue ir tão longe quanto a Pabllo Vittar?
+* 🛣 [Você consegue ir tão longe quanto a Pabllo Vittar?](https://www.buzzfeed.com/br/saadmatheus/teste-voce-consegue-ir-tao-longe-quanto-pabllo-vittar)
 
-https://www.buzzfeed.com/br/saadmatheus/teste-voce-consegue-ir-tao-longe-quanto-pabllo-vittar
+* :leafy_green: [A maioria das pessoas não consegue identificar 10 legumes nesta foto — você consegue?](https://www.buzzfeed.com/br/audreyworboys/teste-identificar-legumes)
 
 
 ## Comidas
@@ -151,9 +128,9 @@ https://www.buzzfeed.com/br/saadmatheus/teste-voce-consegue-ir-tao-longe-quanto-
 
 * 🤔 [O que tem na geladeira?](https://www.buzzfeed.com/br/davirocha/teste-o-que-tem-na-geladeira)
 
-* :monocle_face: Escolha entre estes alimentos e diremos se você é uma pessoa bagunceira ou arrumadinha
+* :monocle_face: [Escolha entre estes alimentos e diremos se você é uma pessoa bagunceira ou arrumadinha](https://www.buzzfeed.com/br/joannaborns/teste-alimentos-diremos-bagunceiro-arrumadinho)
 
-https://www.buzzfeed.com/br/joannaborns/teste-alimentos-diremos-bagunceiro-arrumadinho
+* :icecream: [Escolha 5 sorvetes lindos e revelaremos sua idade emocional](https://www.buzzfeed.com/br/sarahaspler/teste-cinco-sorvetes-idade-emocional)
 
 ## Música
 
@@ -163,22 +140,14 @@ https://www.buzzfeed.com/br/joannaborns/teste-alimentos-diremos-bagunceiro-arrum
 
 * 🎧 [Seu gosto musical é de outra epoca?](https://www.buzzfeed.com/br/susanacristalli/teste-musicas-antiga)
 
-* 💅 Que Pabllo Vittar é você?
-
-https://www.buzzfeed.com/br/julianakataoka/que-pabllo-vittar-e-voce
+* 💅 [Que Pabllo Vittar é você?](https://www.buzzfeed.com/br/julianakataoka/que-pabllo-vittar-e-voce)
 
 
-* 🎂 Você está de parabéns?
-
-https://www.buzzfeed.com/br/luizougui/teste-esta-de-parabens-pabllo-vittar-psirico
+* 🎂 [Você está de parabéns?](https://www.buzzfeed.com/br/luizougui/teste-esta-de-parabens-pabllo-vittar-psirico)
 
 
-* Você sabe mais do que um graduado em música?
-
-https://www.buzzfeed.com/br/kaikamryn/teste-sabe-mais-formado-musica
+* :musical_note: [Você sabe mais do que um graduado em música?](https://www.buzzfeed.com/br/kaikamryn/teste-sabe-mais-formado-musica)
 
 
-* 🎤 Será que conseguimos adivinhar sua idade com perguntas sobre música?
-
-https://www.buzzfeed.com/br/perpetua/sera-que-conseguimos-adivinhar-sua-idade-com-pergu
+* 🎤 [Será que conseguimos adivinhar sua idade com perguntas sobre música?](https://www.buzzfeed.com/br/perpetua/sera-que-conseguimos-adivinhar-sua-idade-com-pergu)
 
