@@ -126,7 +126,9 @@ https://www.buzzfeed.com/br/saadmatheus/teste-voce-consegue-ir-tao-longe-quanto-
 
 * 🤢 [Se você é chato para comer, este quiz pode te dar ânsia 👨‍🎤](https://www.buzzfeed.com/br/andrewziegler/enquete-escolha-comidas-nojentas)
 
+
 * 🥔 [Que tipo de batata é você?](https://www.buzzfeed.com/br/gracegrace24/teste-que-tipo-de-batata)
+
 
 * 🍟 [Que tipo de batata frita mais combina com você?](https://www.buzzfeed.com/br/luisaoguime/teste-corte-batata-frita?bfsource=relatedmanual)
 
@@ -181,7 +183,7 @@ https://www.buzzfeed.com/br/kaikamryn/teste-sabe-mais-formado-musica
 
 https://www.buzzfeed.com/br/perpetua/sera-que-conseguimos-adivinhar-sua-idade-com-pergu
 
-## Séries e TV
+## Filmes e TV
 
 * :sparkles: [Nem mesmo o maior fã de Harry Potter consegue clicar nos personagens certos deste teste](https://www.buzzfeed.com/br/kirbybeaton/teste-dificil-harry-potter-personagens)
 
