@@ -46,6 +46,10 @@ https://www.buzzfeed.com/br/saadmatheus/teste-nome-novela-define-vida-amorosa
 
 * :credit_card: [Torre um cartão de crédito sem limite e descubra qual celebridade seria sua amiga](https://www.buzzfeed.com/br/victornascimento/cartao-de-credito-sem-limite)
 
+* :taxi: Que mistura de personagem de Community com A Grande Família é você?
+
+https://www.buzzfeed.com/br/luizougui/teste-mistura-personagens-community-grande-familia
+
 ## Quem é você
 
 * :astronaut: [Quem é você jogando Among Us?](https://www.buzzfeed.com/br/priscilamendes/teste-quem-e-voce-jogando-among-us)
