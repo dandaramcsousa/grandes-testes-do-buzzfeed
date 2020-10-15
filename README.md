@@ -27,8 +27,17 @@
 
 * :thinking: [Quanto você manja sobre os memes brasileiros?](https://www.buzzfeed.com/br/davirocha/quanto-voce-manja-sobre-os-memes-brasileiros)
 
+* :books: Você é capaz de identificar as obras da Jane Austen a partir das descrições na Wikipedia?
+
+https://www.buzzfeed.com/br/gaiapassarelli/teste-filmes-jane-austen-wikipedia
+
+* :popcorn: Julgue estas adaptações live action e te indicaremos um filme cult
+
+https://www.buzzfeed.com/br/luizougui/filmes-adaptacao-live-action-cults
+
 
 * :tv: [Qual nome de novela define sua vida amorosa?](https://www.buzzfeed.com/br/saadmatheus/teste-nome-novela-define-vida-amorosa)
+
 
 
 * :hearts: [Forme casais fictícios e revelaremos como estará sua vida amorosa em um ano](https://www.buzzfeed.com/br/perpetua/monte-um-namorado-perfeito-e-nos-revelaremos-uma-v)
@@ -41,6 +50,14 @@
 
 
 * :credit_card: [Torre um cartão de crédito sem limite e descubra qual celebridade seria sua amiga](https://www.buzzfeed.com/br/victornascimento/cartao-de-credito-sem-limite)
+
+
+* :taxi: Que mistura de personagem de Community com A Grande Família é você?
+
+https://www.buzzfeed.com/br/luizougui/teste-mistura-personagens-community-grande-familia
+
+
+* :art: [Se você não for bem neste quiz sobre círculo cromático, precisa voltar para o ensino fundamental](https://www.buzzfeed.com/br/hannahmarder/teste-circulo-cromatico)
 
 ## Quem é você
 
@@ -64,9 +81,15 @@
 
 * 🧓 [Quão Marilda você é?](https://www.buzzfeed.com/br/saadmatheus/teste-quao-marilda-voce-e)
 
+* Qual nome de novela define sua vida amorosa?
+
+https://www.buzzfeed.com/br/saadmatheus/teste-nome-novela-define-vida-amorosa
+
+* Você conseguiria morar com um virgininano?
+
+https://www.buzzfeed.com/br/saadmatheus/teste-voce-conseguiria-morar-signo-virgem
 
 * :princess: [Decore um apartamento e diremos qual princesa da Disney você é](https://www.buzzfeed.com/br/anjalipatel/decore-um-apartamento-e-diremos-qual-princesa-da-disney#.igw5ONxYLW)
-
 
 * :full_moon_with_face: [Que fase da Lua é você?](https://www.buzzfeed.com/br/luizougui/teste-fases-da-lua-personalidade)
 
@@ -83,6 +106,9 @@
 
 * :birthday: [Você consegue responder todas essas perguntas sem levar uma torta na cara?](https://www.buzzfeed.com/br/saadmatheus/teste-chegar-final-torta-na-cara?bfsource=relatedmanual)
 
+* Eu misturei o rosto de 16 celebridades – você sabe quais são as combinações?
+
+https://www.buzzfeed.com/br/spenceralthouse/teste-rostos-celebridades-misturados
 
 * 👸 [Consegue identificar estes 13 filmes da Disney pelas suas descrições da Wikipedia?](https://www.buzzfeed.com/br/kaylayandoli/teste-filmes-disney-wikipedia)
 
@@ -96,10 +122,12 @@
 * 👩‍⚕️ [Só quem é MUITO fã de "Grey's Anatomy" consegue acertar mais de 7 nesse teste](buzzfeed.com/br/noradominick/consegue-adivinhar-a-temporada-de-greys-anatomy)
 
 
+* :mage: [Você consegue identificar o filme da saga Harry Potter pela primeira frase dita nele?](https://www.buzzfeed.com/br/saadmatheus/teste-identificar-filme-harry-potter-pela-primeira-frase)
+
+
 ## Comidas
 
-* 🤢 [Se você é chato para comer, este quiz pode te dar ânsia](https://www.buzzfeed.com/br/andrewziegler/enquete-escolha-comidas-nojentas)
-
+* 🤢 [Se você é chato para comer, este quiz pode te dar ânsia 👨‍🎤](https://www.buzzfeed.com/br/andrewziegler/enquete-escolha-comidas-nojentas)
 
 * 🥔 [Que tipo de batata é você?](https://www.buzzfeed.com/br/gracegrace24/teste-que-tipo-de-batata)
 
@@ -140,8 +168,33 @@
 
 * 🎧 [Seu gosto musical é de outra epoca?](https://www.buzzfeed.com/br/susanacristalli/teste-musicas-antiga)
 
+* 🎂 [Você está de parabéns?](https://www.buzzfeed.com/br/luizougui/teste-esta-de-parabens-pabllo-vittar-psirico)
+
 
 * 💅 [Que Pabllo Vittar é você?](https://www.buzzfeed.com/br/julianakataoka/que-pabllo-vittar-e-voce)
 
+* Você sabe mais do que um graduado em música?
 
-* 🎂 [Você está de parabéns?](https://www.buzzfeed.com/br/luizougui/teste-esta-de-parabens-pabllo-vittar-psirico)
+https://www.buzzfeed.com/br/kaikamryn/teste-sabe-mais-formado-musica
+
+
+* 🎤 Será que conseguimos adivinhar sua idade com perguntas sobre música?
+
+https://www.buzzfeed.com/br/perpetua/sera-que-conseguimos-adivinhar-sua-idade-com-pergu
+
+## Filmes e TV
+
+* :sparkles: [Nem mesmo o maior fã de Harry Potter consegue clicar nos personagens certos deste teste](https://www.buzzfeed.com/br/kirbybeaton/teste-dificil-harry-potter-personagens)
+
+* :movie_camera: [Quantos destes filmes todo mundo AMA você ODEIA?](https://www.buzzfeed.com/br/davirocha/quantos-destes-filmes-todo-mundo-ama-voce-odeia)
+
+* :tv: [Só quem assistiu muita TV brasileira nos anos 2000 vai reconhecer estas celebridades](https://www.buzzfeed.com/br/saadmatheus/teste-reconhecer-celebridades-brasileiras-anos-2000)
+
+* :video_camera: [Escolha o personagem que você MENOS gosta em cada série](https://www.buzzfeed.com/br/apersonnamedbradley/teste-qual-personagem-serie-voce-gosta-menos)
+
+
+
+
+
+
+
