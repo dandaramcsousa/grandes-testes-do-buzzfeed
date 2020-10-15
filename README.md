@@ -201,3 +201,22 @@ https://www.buzzfeed.com/br/luizougui/teste-mistura-personagens-community-grande
 
 
 
+## Séries
+
+* 😎 [Quantas séries cult você já viu? - BR](https://www.buzzfeed.com/br/susanacristalli/quantas-series-cult-voce-ja-viu)
+
+* 🍌 [Com qual personagem de Arrested Development você está espiritualmente conectado? - EN](https://www.buzzfeed.com/ailbhemalone/which-arrested-development-character-are-you)
+
+* 🗯  [Você consegue reconhecer a série só com uma frase? - BR](https://www.buzzfeed.com/br/victornascimento/voce-consegue-reconhecer-a-serie-so-com-uma-frase)
+
+* 👻 [Você sobreviveria a um episódio de Supernatural? - BR](https://www.buzzfeed.com/br/christinedierkes/teste-serie-supernatural)
+
+* 🏬 [Vá para Hogwarts e diremos qual personagem de "The Office" você é - BR](https://www.buzzfeed.com/br/mccracken/teste-hogwarts-the-office)
+
+* 🎲 [Que personagem de "Stranger Things" você é? - BR](https://www.buzzfeed.com/br/matwhitehead/qual-personagem-de-stranger-things-voco-n)
+
+* 👮 [Qual personagem de Brooklyn 99 você é?](https://www.buzzfeed.com/br/bct8728/teste-personagem-brooklyn-nine-nine)
+
+* 💵 [Quem é você na série "La Casa de Papel"?](https://www.buzzfeed.com/br/davirocha/quem-e-voce-na-serie-la-casa-de-papel)
+
+* ☁ [Que personagem de "The Good Place" você é?](https://www.buzzfeed.com/br/eleanorbate/teste-personagem-de-the-good-place)
