@@ -59,6 +59,7 @@ https://www.buzzfeed.com/br/luizougui/teste-mistura-personagens-community-grande
 
 * :art: [Se você não for bem neste quiz sobre círculo cromático, precisa voltar para o ensino fundamental](https://www.buzzfeed.com/br/hannahmarder/teste-circulo-cromatico)
 
+
 ## Quem é você
 
 * :astronaut: [Quem é você jogando Among Us?](https://www.buzzfeed.com/br/priscilamendes/teste-quem-e-voce-jogando-among-us)
@@ -81,13 +82,9 @@ https://www.buzzfeed.com/br/luizougui/teste-mistura-personagens-community-grande
 
 * 🧓 [Quão Marilda você é?](https://www.buzzfeed.com/br/saadmatheus/teste-quao-marilda-voce-e)
 
-* Qual nome de novela define sua vida amorosa?
+* :tv: [Qual nome de novela define sua vida amorosa?](https://www.buzzfeed.com/br/saadmatheus/teste-nome-novela-define-vida-amorosa)
 
-https://www.buzzfeed.com/br/saadmatheus/teste-nome-novela-define-vida-amorosa
-
-* Você conseguiria morar com um virgininano?
-
-https://www.buzzfeed.com/br/saadmatheus/teste-voce-conseguiria-morar-signo-virgem
+* :virgo: [Você conseguiria morar com um virgininano?](https://www.buzzfeed.com/br/saadmatheus/teste-voce-conseguiria-morar-signo-virgem)
 
 * :princess: [Decore um apartamento e diremos qual princesa da Disney você é](https://www.buzzfeed.com/br/anjalipatel/decore-um-apartamento-e-diremos-qual-princesa-da-disney#.igw5ONxYLW)
 
@@ -96,8 +93,12 @@ https://www.buzzfeed.com/br/saadmatheus/teste-voce-conseguiria-morar-signo-virge
 
 * 🙆‍♀️ [Você é mais Pabllo Vittar ou Pablo do arrocha?](https://www.buzzfeed.com/br/raphaelevangelista/voce-e-mais-pabllo-vittar-ou-pablo-do-arrocha)
 
-
 *  💼 [Planeje uma festa e te diremos qual seria seu emprego dos sonhos](https://www.buzzfeed.com/br/michelleno/teste-planeje-uma-festa-emprego-dos-sonhos)
+
+* :innocent: [Qual o seu alinhamento moral?](https://www.buzzfeed.com/br/awesomer/qual-seu-alinhamento-moral)
+
+* :raised_eyebrow: [Quão polêmico é você?](https://www.buzzfeed.com/br/gabrielsukita/quao-polemico-e-voce-comida)
+
 
 ## Você consegue acertar?
 
@@ -106,9 +107,7 @@ https://www.buzzfeed.com/br/saadmatheus/teste-voce-conseguiria-morar-signo-virge
 
 * :birthday: [Você consegue responder todas essas perguntas sem levar uma torta na cara?](https://www.buzzfeed.com/br/saadmatheus/teste-chegar-final-torta-na-cara?bfsource=relatedmanual)
 
-* Eu misturei o rosto de 16 celebridades – você sabe quais são as combinações?
-
-https://www.buzzfeed.com/br/spenceralthouse/teste-rostos-celebridades-misturados
+* :thinking: [Eu misturei o rosto de 16 celebridades – você sabe quais são as combinações?](https://www.buzzfeed.com/br/spenceralthouse/teste-rostos-celebridades-misturados)
 
 * 👸 [Consegue identificar estes 13 filmes da Disney pelas suas descrições da Wikipedia?](https://www.buzzfeed.com/br/kaylayandoli/teste-filmes-disney-wikipedia)
 
@@ -117,6 +116,8 @@ https://www.buzzfeed.com/br/spenceralthouse/teste-rostos-celebridades-misturados
 
 
 * 🛣 [Você consegue ir tão longe quanto a Pabllo Vittar?](https://www.buzzfeed.com/br/saadmatheus/teste-voce-consegue-ir-tao-longe-quanto-pabllo-vittar)
+
+* :leafy_green: [A maioria das pessoas não consegue identificar 10 legumes nesta foto — você consegue?](https://www.buzzfeed.com/br/audreyworboys/teste-identificar-legumes)
 
 
 * 👩‍⚕️ [Só quem é MUITO fã de "Grey's Anatomy" consegue acertar mais de 7 nesse teste](buzzfeed.com/br/noradominick/consegue-adivinhar-a-temporada-de-greys-anatomy)
@@ -158,6 +159,9 @@ https://www.buzzfeed.com/br/spenceralthouse/teste-rostos-celebridades-misturados
 
 * :monocle_face: [Escolha entre estes alimentos e diremos se você é uma pessoa bagunceira ou arrumadinha](https://www.buzzfeed.com/br/joannaborns/teste-alimentos-diremos-bagunceiro-arrumadinho)
 
+* :icecream: [Escolha 5 sorvetes lindos e revelaremos sua idade emocional](https://www.buzzfeed.com/br/sarahaspler/teste-cinco-sorvetes-idade-emocional)
+
+
 ## Música
 
 * 🇪🇬 [Você sabe cantar Faraó inteira?](https://www.buzzfeed.com/br/gaiapassarelli/teste-letra-farao)
@@ -173,14 +177,13 @@ https://www.buzzfeed.com/br/spenceralthouse/teste-rostos-celebridades-misturados
 
 * 💅 [Que Pabllo Vittar é você?](https://www.buzzfeed.com/br/julianakataoka/que-pabllo-vittar-e-voce)
 
-* Você sabe mais do que um graduado em música?
-
-https://www.buzzfeed.com/br/kaikamryn/teste-sabe-mais-formado-musica
+* 🎂 [Você está de parabéns?](https://www.buzzfeed.com/br/luizougui/teste-esta-de-parabens-pabllo-vittar-psirico)
 
 
-* 🎤 Será que conseguimos adivinhar sua idade com perguntas sobre música?
+* :musical_note: [Você sabe mais do que um graduado em música?](https://www.buzzfeed.com/br/kaikamryn/teste-sabe-mais-formado-musica)
 
-https://www.buzzfeed.com/br/perpetua/sera-que-conseguimos-adivinhar-sua-idade-com-pergu
+
+* 🎤 [Será que conseguimos adivinhar sua idade com perguntas sobre música?](https://www.buzzfeed.com/br/perpetua/sera-que-conseguimos-adivinhar-sua-idade-com-pergu)
 
 ## Filmes e TV
 
