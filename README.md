@@ -50,6 +50,8 @@ https://www.buzzfeed.com/br/saadmatheus/teste-nome-novela-define-vida-amorosa
 
 https://www.buzzfeed.com/br/luizougui/teste-mistura-personagens-community-grande-familia
 
+* :art: [Se você não for bem neste quiz sobre círculo cromático, precisa voltar para o ensino fundamental](https://www.buzzfeed.com/br/hannahmarder/teste-circulo-cromatico)
+
 ## Quem é você
 
 * :astronaut: [Quem é você jogando Among Us?](https://www.buzzfeed.com/br/priscilamendes/teste-quem-e-voce-jogando-among-us)
@@ -122,7 +124,6 @@ https://www.buzzfeed.com/br/saadmatheus/teste-voce-consegue-ir-tao-longe-quanto-
 * 🤢 [Se você é chato para comer, este quiz pode te dar ânsia 👨‍🎤](https://www.buzzfeed.com/br/andrewziegler/enquete-escolha-comidas-nojentas)
 
 
-
 * 🥔 [Que tipo de batata é você?](https://www.buzzfeed.com/br/gracegrace24/teste-que-tipo-de-batata)
 
 
@@ -178,4 +179,19 @@ https://www.buzzfeed.com/br/kaikamryn/teste-sabe-mais-formado-musica
 * 🎤 Será que conseguimos adivinhar sua idade com perguntas sobre música?
 
 https://www.buzzfeed.com/br/perpetua/sera-que-conseguimos-adivinhar-sua-idade-com-pergu
+
+## Filmes e TV
+
+* :sparkles: [Nem mesmo o maior fã de Harry Potter consegue clicar nos personagens certos deste teste](https://www.buzzfeed.com/br/kirbybeaton/teste-dificil-harry-potter-personagens)
+
+* :movie_camera: [Quantos destes filmes todo mundo AMA você ODEIA?](https://www.buzzfeed.com/br/davirocha/quantos-destes-filmes-todo-mundo-ama-voce-odeia)
+
+* :tv: [Só quem assistiu muita TV brasileira nos anos 2000 vai reconhecer estas celebridades](https://www.buzzfeed.com/br/saadmatheus/teste-reconhecer-celebridades-brasileiras-anos-2000)
+
+* :video_camera: [Escolha o personagem que você MENOS gosta em cada série](https://www.buzzfeed.com/br/apersonnamedbradley/teste-qual-personagem-serie-voce-gosta-menos)
+
+
+
+
+
 
