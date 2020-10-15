@@ -23,9 +23,11 @@
 
 * :books: [Você é capaz de identificar as obras da Jane Austen a partir das descrições na Wikipedia?](https://www.buzzfeed.com/br/gaiapassarelli/teste-filmes-jane-austen-wikipedia)
 
-* :thinking: Quanto você manja sobre os memes brasileiros? 
+* :thinking: [Quanto você manja sobre os memes brasileiros?](https://www.buzzfeed.com/br/davirocha/quanto-voce-manja-sobre-os-memes-brasileiros)
 
-https://www.buzzfeed.com/br/davirocha/quanto-voce-manja-sobre-os-memes-brasileiros
+* :hearts: [Forme casais fictícios e revelaremos como estará sua vida amorosa em um ano](https://www.buzzfeed.com/br/perpetua/monte-um-namorado-perfeito-e-nos-revelaremos-uma-v)
+
+* :house_with_garden: [Monte seu apê dos sonhos e te diremos sua verdadeira idade](https://www.buzzfeed.com/br/victornascimento/ape-dos-sonhos)
 
 * :books: Você é capaz de identificar as obras da Jane Austen a partir das descrições na Wikipedia?
 
@@ -40,19 +42,9 @@ https://www.buzzfeed.com/br/saadmatheus/teste-nome-novela-define-vida-amorosa
 
 * :hearts: Forme casais fictícios e revelaremos como estará sua vida amorosa em um ano
 
-https://www.buzzfeed.com/br/perpetua/monte-um-namorado-perfeito-e-nos-revelaremos-uma-v
+* :hushed: [Descubra se você é privilegiado](https://www.buzzfeed.com/br/clarissapassos/voce-eh-privilegiado)
 
-* :house_with_garden: Monte seu apê dos sonhos e te diremos sua verdadeira idade 
-
-https://www.buzzfeed.com/br/victornascimento/ape-dos-sonhos
-
-* :hushed: Descubra se você é privilegiado 
-
-https://www.buzzfeed.com/br/clarissapassos/voce-eh-privilegiado
-
-* :credit_card: Torre um cartão de crédito sem limite e descubra qual celebridade seria sua amiga
-
-https://www.buzzfeed.com/br/victornascimento/cartao-de-credito-sem-limite
+* :credit_card: [Torre um cartão de crédito sem limite e descubra qual celebridade seria sua amiga](https://www.buzzfeed.com/br/victornascimento/cartao-de-credito-sem-limite)
 
 ## Quem é você
 
@@ -87,9 +79,7 @@ https://www.buzzfeed.com/br/saadmatheus/teste-voce-conseguiria-morar-signo-virge
 * :princess: [Decore um apartamento e diremos qual princesa da Disney você é](https://www.buzzfeed.com/br/anjalipatel/decore-um-apartamento-e-diremos-qual-princesa-da-disney#.igw5ONxYLW)
 
 
-* :full_moon_with_face: Que fase da Lua é você?
-
-https://www.buzzfeed.com/br/luizougui/teste-fases-da-lua-personalidade
+* :full_moon_with_face: [Que fase da Lua é você?](https://www.buzzfeed.com/br/luizougui/teste-fases-da-lua-personalidade)
 
 * 🙆‍♀️ Você é mais Pabllo Vittar ou Pablo do arrocha?
 
