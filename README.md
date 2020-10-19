@@ -99,6 +99,7 @@ https://www.buzzfeed.com/br/luizougui/teste-mistura-personagens-community-grande
 
 * :raised_eyebrow: [Quão polêmico é você?](https://www.buzzfeed.com/br/gabrielsukita/quao-polemico-e-voce-comida)
 
+* :woman_cook: [Monte um café da manhã delicioso e diremos qual Ana Maria Braga fantasiada você é](https://www.buzzfeed.com/br/saadmatheus/teste-qual-ana-maria-fantasiada-e-voce)
 
 ## Você consegue acertar?
 
