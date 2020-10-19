@@ -220,3 +220,5 @@ https://www.buzzfeed.com/br/luizougui/teste-mistura-personagens-community-grande
 * 💵 [Quem é você na série "La Casa de Papel"?](https://www.buzzfeed.com/br/davirocha/quem-e-voce-na-serie-la-casa-de-papel)
 
 * ☁ [Que personagem de "The Good Place" você é?](https://www.buzzfeed.com/br/eleanorbate/teste-personagem-de-the-good-place)
+
+* :hospital: [Qual personagem da série Ratched você é?](https://www.buzzfeed.com/br/michelelbird/teste-quem-e-voce-em-ratched)
