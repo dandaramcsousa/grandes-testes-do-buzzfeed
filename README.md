@@ -101,6 +101,9 @@ https://www.buzzfeed.com/br/luizougui/teste-mistura-personagens-community-grande
 
 * :woman_cook: [Monte um café da manhã delicioso e diremos qual Ana Maria Braga fantasiada você é](https://www.buzzfeed.com/br/saadmatheus/teste-qual-ana-maria-fantasiada-e-voce)
 
+* :smiley_cat: [Qual animal combina com sua personalidade?](https://www.buzzfeed.com/br/javiermoreno/teste-animal-personalidade)
+
+
 ## Você consegue acertar?
 
 * :speech_balloon: [Você consegue acertar quem disse isso: grupo de pagode anos 90 ou Shakespeare?](https://www.buzzfeed.com/br/guilhermelr/quiz-pagode-90-ou-shakespeare)
@@ -186,6 +189,8 @@ https://www.buzzfeed.com/br/luizougui/teste-mistura-personagens-community-grande
 
 * 🎤 [Será que conseguimos adivinhar sua idade com perguntas sobre música?](https://www.buzzfeed.com/br/perpetua/sera-que-conseguimos-adivinhar-sua-idade-com-pergu)
 
+* :guitar: [Todo mundo é uma banda de rock dos anos 90 — descubra qual você é](https://www.buzzfeed.com/br/arodyankees/teste-todo-mundo-banda-de-rock-anos-90-qual-voce-e)
+
 ## Filmes e TV
 
 * :sparkles: [Nem mesmo o maior fã de Harry Potter consegue clicar nos personagens certos deste teste](https://www.buzzfeed.com/br/kirbybeaton/teste-dificil-harry-potter-personagens)
@@ -196,7 +201,7 @@ https://www.buzzfeed.com/br/luizougui/teste-mistura-personagens-community-grande
 
 * :video_camera: [Escolha o personagem que você MENOS gosta em cada série](https://www.buzzfeed.com/br/apersonnamedbradley/teste-qual-personagem-serie-voce-gosta-menos)
 
-
+* :vampire: [Qual seria seu poder de vampiro em "Crepúsculo"?](https://www.buzzfeed.com/br/prk4hv/poder-de-vampiro-de-crepusculo)
 
 
 
