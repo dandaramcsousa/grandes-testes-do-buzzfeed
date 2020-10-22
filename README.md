@@ -199,7 +199,7 @@ https://www.buzzfeed.com/br/luizougui/teste-mistura-personagens-community-grande
 
 * :video_camera: [Escolha o personagem que você MENOS gosta em cada série](https://www.buzzfeed.com/br/apersonnamedbradley/teste-qual-personagem-serie-voce-gosta-menos)
 
-
+* :vampire: [Qual seria seu poder de vampiro em "Crepúsculo"?](https://www.buzzfeed.com/br/prk4hv/poder-de-vampiro-de-crepusculo)
 
 
 
