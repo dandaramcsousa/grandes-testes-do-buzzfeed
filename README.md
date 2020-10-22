@@ -99,6 +99,8 @@ https://www.buzzfeed.com/br/luizougui/teste-mistura-personagens-community-grande
 
 * :raised_eyebrow: [Quão polêmico é você?](https://www.buzzfeed.com/br/gabrielsukita/quao-polemico-e-voce-comida)
 
+* :smiley_cat: [Qual animal combina com sua personalidade?](https://www.buzzfeed.com/br/javiermoreno/teste-animal-personalidade)
+
 
 ## Você consegue acertar?
 
