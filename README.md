@@ -187,6 +187,8 @@ https://www.buzzfeed.com/br/luizougui/teste-mistura-personagens-community-grande
 
 * 🎤 [Será que conseguimos adivinhar sua idade com perguntas sobre música?](https://www.buzzfeed.com/br/perpetua/sera-que-conseguimos-adivinhar-sua-idade-com-pergu)
 
+* :guitar: [Todo mundo é uma banda de rock dos anos 90 — descubra qual você é](https://www.buzzfeed.com/br/arodyankees/teste-todo-mundo-banda-de-rock-anos-90-qual-voce-e)
+
 ## Filmes e TV
 
 * :sparkles: [Nem mesmo o maior fã de Harry Potter consegue clicar nos personagens certos deste teste](https://www.buzzfeed.com/br/kirbybeaton/teste-dificil-harry-potter-personagens)
