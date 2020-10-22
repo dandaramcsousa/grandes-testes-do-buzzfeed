@@ -99,6 +99,8 @@ https://www.buzzfeed.com/br/luizougui/teste-mistura-personagens-community-grande
 
 * :raised_eyebrow: [Quão polêmico é você?](https://www.buzzfeed.com/br/gabrielsukita/quao-polemico-e-voce-comida)
 
+* :woman_cook: [Monte um café da manhã delicioso e diremos qual Ana Maria Braga fantasiada você é](https://www.buzzfeed.com/br/saadmatheus/teste-qual-ana-maria-fantasiada-e-voce)
+
 * :smiley_cat: [Qual animal combina com sua personalidade?](https://www.buzzfeed.com/br/javiermoreno/teste-animal-personalidade)
 
 
@@ -224,3 +226,5 @@ https://www.buzzfeed.com/br/luizougui/teste-mistura-personagens-community-grande
 * 💵 [Quem é você na série "La Casa de Papel"?](https://www.buzzfeed.com/br/davirocha/quem-e-voce-na-serie-la-casa-de-papel)
 
 * ☁ [Que personagem de "The Good Place" você é?](https://www.buzzfeed.com/br/eleanorbate/teste-personagem-de-the-good-place)
+
+* :hospital: [Qual personagem da série Ratched você é?](https://www.buzzfeed.com/br/michelelbird/teste-quem-e-voce-em-ratched)
