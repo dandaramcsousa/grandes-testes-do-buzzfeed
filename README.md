@@ -39,7 +39,6 @@ https://www.buzzfeed.com/br/luizougui/filmes-adaptacao-live-action-cults
 * :tv: [Qual nome de novela define sua vida amorosa?](https://www.buzzfeed.com/br/saadmatheus/teste-nome-novela-define-vida-amorosa)
 
 
-
 * :hearts: [Forme casais fictícios e revelaremos como estará sua vida amorosa em um ano](https://www.buzzfeed.com/br/perpetua/monte-um-namorado-perfeito-e-nos-revelaremos-uma-v)
 
 
@@ -58,6 +57,8 @@ https://www.buzzfeed.com/br/luizougui/teste-mistura-personagens-community-grande
 
 
 * :art: [Se você não for bem neste quiz sobre círculo cromático, precisa voltar para o ensino fundamental](https://www.buzzfeed.com/br/hannahmarder/teste-circulo-cromatico)
+
+* :school: [Você merece estudar em qual universidade brasileira?](https://www.buzzfeed.com/br/rafaelcapanema/em-qual-universidade-brasileira-voce-deveria-estudar#.lkJrZ15r8)
 
 
 ## Quem é você
@@ -90,7 +91,6 @@ https://www.buzzfeed.com/br/luizougui/teste-mistura-personagens-community-grande
 
 * :full_moon_with_face: [Que fase da Lua é você?](https://www.buzzfeed.com/br/luizougui/teste-fases-da-lua-personalidade)
 
-
 * 🙆‍♀️ [Você é mais Pabllo Vittar ou Pablo do arrocha?](https://www.buzzfeed.com/br/raphaelevangelista/voce-e-mais-pabllo-vittar-ou-pablo-do-arrocha)
 
 *  💼 [Planeje uma festa e te diremos qual seria seu emprego dos sonhos](https://www.buzzfeed.com/br/michelleno/teste-planeje-uma-festa-emprego-dos-sonhos)
@@ -102,6 +102,16 @@ https://www.buzzfeed.com/br/luizougui/teste-mistura-personagens-community-grande
 * :woman_cook: [Monte um café da manhã delicioso e diremos qual Ana Maria Braga fantasiada você é](https://www.buzzfeed.com/br/saadmatheus/teste-qual-ana-maria-fantasiada-e-voce)
 
 * :smiley_cat: [Qual animal combina com sua personalidade?](https://www.buzzfeed.com/br/javiermoreno/teste-animal-personalidade)
+
+* :shallow_pan_of_food: [Conseguimos adivinhar o que você pega no quilo de acordo com seu signo?](https://www.buzzfeed.com/br/florapaul/sua-comida-no-quilo-de-acordo-com-seu-signo#.ru05bPz5q)
+
+* :pouting_man: [Monte seu namorado perfeito e revelaremos uma verdade profunda sobre você](https://www.buzzfeed.com/br/perpetua/monte-um-namorado-perfeito-e-nos-revelaremos-uma-v#.ydbZBRmZ2)
+
+* :rainbow: [Qual é a cor da energia que você emana?](https://www.buzzfeed.com/br/bibibarud/de-que-cor-e-a-energia-que-voce-emana#.xy1o7NAoB)
+
+* :pouting_face: [Este é o quiz definitivo para você saber se é feminista](https://www.buzzfeed.com/br/clarissapassos/voce-e-feminista#.mjQX1KZXp)
+
+* :green_salad:	[Monte uma saladinha e diremos sua idade e altura](https://www.buzzfeed.com/br/andrewziegler/monte-uma-saladinha-e-diremos-sua-idade-e-altura#.sfeJwl9Ja)
 
 
 ## Você consegue acertar?
@@ -128,6 +138,9 @@ https://www.buzzfeed.com/br/luizougui/teste-mistura-personagens-community-grande
 
 
 * :mage: [Você consegue identificar o filme da saga Harry Potter pela primeira frase dita nele?](https://www.buzzfeed.com/br/saadmatheus/teste-identificar-filme-harry-potter-pela-primeira-frase)
+
+* :soccer: [Você sabe dizer qual destes escudos de clubes brasileiros é o verdadeiro?](https://www.buzzfeed.com/br/raphaelevangelista/voce-sabe-dizer-qual-destes-escudos-de-clubes-brasileiros-e#.jwWAyV1AG)
+* :brazil: [Você consegue apontar os lugares corretos no mapa do Brasil?](https://www.buzzfeed.com/br/clarissapassos/quiz-mapa-do-brasil#.ncKAwNpAJ)
 
 
 ## Comidas
