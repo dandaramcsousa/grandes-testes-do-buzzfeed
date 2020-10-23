@@ -24,7 +24,7 @@
 
 * :books: [Você é capaz de identificar as obras da Jane Austen a partir das descrições na Wikipedia?](https://www.buzzfeed.com/br/gaiapassarelli/teste-filmes-jane-austen-wikipedia)
 
-* :rat: [Qual roedor de chinelinho é você?](https://www.buzzfeed.com/br/gaiapassarelli/teste-filmes-jane-austen-wikipedia)
+* :rat: [Qual roedor de chinelinho é você?](https://www.buzzfeed.com/br/priscilamendes/teste-qual-roedor-de-chinelinho-e-voce)
 
 
 * :thinking: [Quanto você manja sobre os memes brasileiros?](https://www.buzzfeed.com/br/davirocha/quanto-voce-manja-sobre-os-memes-brasileiros)
