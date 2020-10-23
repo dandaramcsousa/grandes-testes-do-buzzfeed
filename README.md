@@ -27,13 +27,8 @@
 
 * :thinking: [Quanto você manja sobre os memes brasileiros?](https://www.buzzfeed.com/br/davirocha/quanto-voce-manja-sobre-os-memes-brasileiros)
 
-* :books: Você é capaz de identificar as obras da Jane Austen a partir das descrições na Wikipedia?
 
-https://www.buzzfeed.com/br/gaiapassarelli/teste-filmes-jane-austen-wikipedia
-
-* :popcorn: Julgue estas adaptações live action e te indicaremos um filme cult
-
-https://www.buzzfeed.com/br/luizougui/filmes-adaptacao-live-action-cults
+* :popcorn: [Julgue estas adaptações live action e te indicaremos um filme cult](https://www.buzzfeed.com/br/luizougui/filmes-adaptacao-live-action-cults)
 
 
 * :tv: [Qual nome de novela define sua vida amorosa?](https://www.buzzfeed.com/br/saadmatheus/teste-nome-novela-define-vida-amorosa)
@@ -51,12 +46,11 @@ https://www.buzzfeed.com/br/luizougui/filmes-adaptacao-live-action-cults
 * :credit_card: [Torre um cartão de crédito sem limite e descubra qual celebridade seria sua amiga](https://www.buzzfeed.com/br/victornascimento/cartao-de-credito-sem-limite)
 
 
-* :taxi: Que mistura de personagem de Community com A Grande Família é você?
-
-https://www.buzzfeed.com/br/luizougui/teste-mistura-personagens-community-grande-familia
+* :taxi: [Que mistura de personagem de Community com A Grande Família é você?](https://www.buzzfeed.com/br/luizougui/teste-mistura-personagens-community-grande-familia)
 
 
 * :art: [Se você não for bem neste quiz sobre círculo cromático, precisa voltar para o ensino fundamental](https://www.buzzfeed.com/br/hannahmarder/teste-circulo-cromatico)
+
 
 * :school: [Você merece estudar em qual universidade brasileira?](https://www.buzzfeed.com/br/rafaelcapanema/em-qual-universidade-brasileira-voce-deveria-estudar#.lkJrZ15r8)
 
