@@ -24,20 +24,16 @@
 
 * :books: [Você é capaz de identificar as obras da Jane Austen a partir das descrições na Wikipedia?](https://www.buzzfeed.com/br/gaiapassarelli/teste-filmes-jane-austen-wikipedia)
 
+* :rat: [Qual roedor de chinelinho é você?](https://www.buzzfeed.com/br/gaiapassarelli/teste-filmes-jane-austen-wikipedia)
+
 
 * :thinking: [Quanto você manja sobre os memes brasileiros?](https://www.buzzfeed.com/br/davirocha/quanto-voce-manja-sobre-os-memes-brasileiros)
 
-* :books: Você é capaz de identificar as obras da Jane Austen a partir das descrições na Wikipedia?
 
-https://www.buzzfeed.com/br/gaiapassarelli/teste-filmes-jane-austen-wikipedia
-
-* :popcorn: Julgue estas adaptações live action e te indicaremos um filme cult
-
-https://www.buzzfeed.com/br/luizougui/filmes-adaptacao-live-action-cults
+* :popcorn: [Julgue estas adaptações live action e te indicaremos um filme cult](https://www.buzzfeed.com/br/luizougui/filmes-adaptacao-live-action-cults)
 
 
 * :tv: [Qual nome de novela define sua vida amorosa?](https://www.buzzfeed.com/br/saadmatheus/teste-nome-novela-define-vida-amorosa)
-
 
 
 * :hearts: [Forme casais fictícios e revelaremos como estará sua vida amorosa em um ano](https://www.buzzfeed.com/br/perpetua/monte-um-namorado-perfeito-e-nos-revelaremos-uma-v)
