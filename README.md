@@ -27,13 +27,9 @@
 
 * :thinking: [Quanto você manja sobre os memes brasileiros?](https://www.buzzfeed.com/br/davirocha/quanto-voce-manja-sobre-os-memes-brasileiros)
 
-* :books: Você é capaz de identificar as obras da Jane Austen a partir das descrições na Wikipedia?
+* :books: [Você é capaz de identificar as obras da Jane Austen a partir das descrições na Wikipedia?](https://www.buzzfeed.com/br/gaiapassarelli/teste-filmes-jane-austen-wikipedia)
 
-https://www.buzzfeed.com/br/gaiapassarelli/teste-filmes-jane-austen-wikipedia
-
-* :popcorn: Julgue estas adaptações live action e te indicaremos um filme cult
-
-https://www.buzzfeed.com/br/luizougui/filmes-adaptacao-live-action-cults
+* :popcorn: [Julgue estas adaptações live action e te indicaremos um filme cult](https://www.buzzfeed.com/br/luizougui/filmes-adaptacao-live-action-cults)
 
 
 * :tv: [Qual nome de novela define sua vida amorosa?](https://www.buzzfeed.com/br/saadmatheus/teste-nome-novela-define-vida-amorosa)
@@ -52,9 +48,7 @@ https://www.buzzfeed.com/br/luizougui/filmes-adaptacao-live-action-cults
 * :credit_card: [Torre um cartão de crédito sem limite e descubra qual celebridade seria sua amiga](https://www.buzzfeed.com/br/victornascimento/cartao-de-credito-sem-limite)
 
 
-* :taxi: Que mistura de personagem de Community com A Grande Família é você?
-
-https://www.buzzfeed.com/br/luizougui/teste-mistura-personagens-community-grande-familia
+* :taxi: [Que mistura de personagem de Community com A Grande Família é você?](https://www.buzzfeed.com/br/luizougui/teste-mistura-personagens-community-grande-familia)
 
 
 * :art: [Se você não for bem neste quiz sobre círculo cromático, precisa voltar para o ensino fundamental](https://www.buzzfeed.com/br/hannahmarder/teste-circulo-cromatico)
@@ -102,6 +96,8 @@ https://www.buzzfeed.com/br/luizougui/teste-mistura-personagens-community-grande
 * :woman_cook: [Monte um café da manhã delicioso e diremos qual Ana Maria Braga fantasiada você é](https://www.buzzfeed.com/br/saadmatheus/teste-qual-ana-maria-fantasiada-e-voce)
 
 * :smiley_cat: [Qual animal combina com sua personalidade?](https://www.buzzfeed.com/br/javiermoreno/teste-animal-personalidade)
+
+* :rat:	[Qual roedor de chinelinho é você?](https://www.buzzfeed.com/br/priscilamendes/teste-qual-roedor-de-chinelinho-e-voce)
 
 
 ## Você consegue acertar?
