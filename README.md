@@ -24,13 +24,11 @@
 
 * :books: [Você é capaz de identificar as obras da Jane Austen a partir das descrições na Wikipedia?](https://www.buzzfeed.com/br/gaiapassarelli/teste-filmes-jane-austen-wikipedia)
 
+
 * :rat: [Qual roedor de chinelinho é você?](https://www.buzzfeed.com/br/priscilamendes/teste-qual-roedor-de-chinelinho-e-voce)
 
 
 * :thinking: [Quanto você manja sobre os memes brasileiros?](https://www.buzzfeed.com/br/davirocha/quanto-voce-manja-sobre-os-memes-brasileiros)
-
-
-* :popcorn: [Julgue estas adaptações live action e te indicaremos um filme cult](https://www.buzzfeed.com/br/luizougui/filmes-adaptacao-live-action-cults)
 
 
 * :tv: [Qual nome de novela define sua vida amorosa?](https://www.buzzfeed.com/br/saadmatheus/teste-nome-novela-define-vida-amorosa)
@@ -96,6 +94,8 @@
 * :woman_cook: [Monte um café da manhã delicioso e diremos qual Ana Maria Braga fantasiada você é](https://www.buzzfeed.com/br/saadmatheus/teste-qual-ana-maria-fantasiada-e-voce)
 
 * :smiley_cat: [Qual animal combina com sua personalidade?](https://www.buzzfeed.com/br/javiermoreno/teste-animal-personalidade)
+
+* :rat:	[Qual roedor de chinelinho é você?](https://www.buzzfeed.com/br/priscilamendes/teste-qual-roedor-de-chinelinho-e-voce)
 
 
 ## Você consegue acertar?
@@ -197,8 +197,7 @@
 
 * :vampire: [Qual seria seu poder de vampiro em "Crepúsculo"?](https://www.buzzfeed.com/br/prk4hv/poder-de-vampiro-de-crepusculo)
 
-
-
+* :popcorn: [Julgue estas adaptações live action e te indicaremos um filme cult] (https://www.buzzfeed.com/br/luizougui/filmes-adaptacao-live-action-cults)
 
 
 ## Séries
@@ -222,3 +221,5 @@
 * ☁ [Que personagem de "The Good Place" você é?](https://www.buzzfeed.com/br/eleanorbate/teste-personagem-de-the-good-place)
 
 * :hospital: [Qual personagem da série Ratched você é?](https://www.buzzfeed.com/br/michelelbird/teste-quem-e-voce-em-ratched)
+
+* :taxi: [Que mistura de personagem de Community com A Grande Família é você?] (https://www.buzzfeed.com/br/luizougui/teste-mistura-personagens-community-grande-familia)
