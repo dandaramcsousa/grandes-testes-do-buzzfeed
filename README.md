@@ -27,13 +27,11 @@
 
 * :thinking: [Quanto você manja sobre os memes brasileiros?](https://www.buzzfeed.com/br/davirocha/quanto-voce-manja-sobre-os-memes-brasileiros)
 
-* :books: [Você é capaz de identificar as obras da Jane Austen a partir das descrições na Wikipedia?](https://www.buzzfeed.com/br/gaiapassarelli/teste-filmes-jane-austen-wikipedia)
 
-* :popcorn: [Julgue estas adaptações live action e te indicaremos um filme cult](https://www.buzzfeed.com/br/luizougui/filmes-adaptacao-live-action-cults)
+* :books: [Você é capaz de identificar as obras da Jane Austen a partir das descrições na Wikipedia?](https://www.buzzfeed.com/br/gaiapassarelli/teste-filmes-jane-austen-wikipedia)
 
 
 * :tv: [Qual nome de novela define sua vida amorosa?](https://www.buzzfeed.com/br/saadmatheus/teste-nome-novela-define-vida-amorosa)
-
 
 
 * :hearts: [Forme casais fictícios e revelaremos como estará sua vida amorosa em um ano](https://www.buzzfeed.com/br/perpetua/monte-um-namorado-perfeito-e-nos-revelaremos-uma-v)
@@ -199,8 +197,7 @@
 
 * :vampire: [Qual seria seu poder de vampiro em "Crepúsculo"?](https://www.buzzfeed.com/br/prk4hv/poder-de-vampiro-de-crepusculo)
 
-
-
+* :popcorn: [Julgue estas adaptações live action e te indicaremos um filme cult] (https://www.buzzfeed.com/br/luizougui/filmes-adaptacao-live-action-cults)
 
 
 ## Séries
@@ -224,3 +221,5 @@
 * ☁ [Que personagem de "The Good Place" você é?](https://www.buzzfeed.com/br/eleanorbate/teste-personagem-de-the-good-place)
 
 * :hospital: [Qual personagem da série Ratched você é?](https://www.buzzfeed.com/br/michelelbird/teste-quem-e-voce-em-ratched)
+
+* :taxi: [Que mistura de personagem de Community com A Grande Família é você?] (https://www.buzzfeed.com/br/luizougui/teste-mistura-personagens-community-grande-familia)
