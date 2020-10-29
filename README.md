@@ -163,6 +163,9 @@
 * :icecream: [Escolha 5 sorvetes lindos e revelaremos sua idade emocional](https://www.buzzfeed.com/br/sarahaspler/teste-cinco-sorvetes-idade-emocional)
 
 
+* 👑 [Julgue comidas de festa infantil e descubra que princesa da Disney é você](https://www.buzzfeed.com/br/luizougui/teste-comidas-festa-infantil-princesas-disney)
+
+
 ## Música
 
 * 🇪🇬 [Você sabe cantar Faraó inteira?](https://www.buzzfeed.com/br/gaiapassarelli/teste-letra-farao)
