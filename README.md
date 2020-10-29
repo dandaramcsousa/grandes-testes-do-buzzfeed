@@ -97,6 +97,7 @@
 
 * :rat:	[Qual roedor de chinelinho é você?](https://www.buzzfeed.com/br/priscilamendes/teste-qual-roedor-de-chinelinho-e-voce)
 
+* :heavy_dollar_sign: [Qual nota de Real é você?](https://www.buzzfeed.com/br/saadmatheus/teste-qual-nota-de-real-e-voce)
 
 ## Você consegue acertar?
 
