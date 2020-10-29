@@ -203,7 +203,10 @@
 
 * :vampire: [Qual seria seu poder de vampiro em "Crepúsculo"?](https://www.buzzfeed.com/br/prk4hv/poder-de-vampiro-de-crepusculo)
 
-* :popcorn: [Julgue estas adaptações live action e te indicaremos um filme cult] (https://www.buzzfeed.com/br/luizougui/filmes-adaptacao-live-action-cults)
+* :popcorn: [Julgue estas adaptações live action e te indicaremos um filme cult] (https://www.buzzfeed.com/br/luizougui/filmes-adaptac
+* ao-live-action-cults)
+
+* :ghost: [Viva um dia bem trevoso e diremos com qual personagem da Família Addams você se parece](https://www.buzzfeed.com/br/victoriagasparowicz/teste-dia-trevoso-personagem-famlia-addams)
 
 
 ## Séries
