@@ -176,6 +176,9 @@
 * :broccoli: [A maioria das pessoas não consegue identificar 10 legumes nesta foto — você consegue?](https://www.buzzfeed.com/br/audreyworboys/teste-identificar-legumes)
 
 
+* :bowl_with_spoon: [Monte uma refeição preguiçosa e diremos quão namorável você é] (https://www.buzzfeed.com/br/lizmrichardson/teste-monte-refeicao-diremos-namoravel)
+
+
 ## Música
 
 * 🇪🇬 [Você sabe cantar Faraó inteira?](https://www.buzzfeed.com/br/gaiapassarelli/teste-letra-farao)
