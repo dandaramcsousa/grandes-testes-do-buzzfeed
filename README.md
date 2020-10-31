@@ -165,6 +165,9 @@
 
 * 👑 [Julgue comidas de festa infantil e descubra que princesa da Disney é você](https://www.buzzfeed.com/br/luizougui/teste-comidas-festa-infantil-princesas-disney)
 
+* :fries: [Escolha 5 produtos de fast food do mundo todo e revelaremos a sua data de nascimento exata](https://www.buzzfeed.com/br/spenceralthouse/escolha-5-produtos-de-fast-food-do-mundo-todo-e-revelaremos)
+
+
 
 ## Música
 
