@@ -217,6 +217,8 @@
 
 * :ghost: [Viva um dia bem trevoso e diremos com qual personagem da Família Addams você se parece](https://www.buzzfeed.com/br/victoriagasparowicz/teste-dia-trevoso-personagem-famlia-addams)
 
+* :house: [Qual caso bizarro do "Casos de Família" é você?](https://www.buzzfeed.com/br/saadmatheus/teste-qual-caso-bizarro-do-casos-de-familia-e-voce)
+
 
 ## Séries
 
