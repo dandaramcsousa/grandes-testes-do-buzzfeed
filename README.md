@@ -52,6 +52,7 @@
 * :art: [Se você não for bem neste quiz sobre círculo cromático, precisa voltar para o ensino fundamental](https://www.buzzfeed.com/br/hannahmarder/teste-circulo-cromatico)
 
 
+
 ## Quem é você
 
 * :astronaut: [Quem é você jogando Among Us?](https://www.buzzfeed.com/br/priscilamendes/teste-quem-e-voce-jogando-among-us)
@@ -100,6 +101,9 @@
 * :heavy_dollar_sign: [Qual nota de Real é você?](https://www.buzzfeed.com/br/saadmatheus/teste-qual-nota-de-real-e-voce)
 
 * :nail_care::skin-tone-5: [Qual Gretchen é você?](https://www.buzzfeed.com/br/julianakataoka/qual-gretchen-e-voce)
+
+* :smiley_cat: [Responda 6 perguntas e descubra qual nome de pet brasileiro você é](https://www.buzzfeed.com/br/camilasa/teste-qual-nome-de-pet-brasileiro-voce-e)
+
 
 ## Você consegue acertar?
 
@@ -167,6 +171,11 @@
 
 * :bento: [Quais são suas opiniões sobre estas comidas coloridas?](https://www.buzzfeed.com/br/saadmatheus/enquete-opinioes-comidas-coloridas)
 
+* :fries: [Escolha 5 produtos de fast food do mundo todo e revelaremos a sua data de nascimento exata](https://www.buzzfeed.com/br/spenceralthouse/escolha-5-produtos-de-fast-food-do-mundo-todo-e-revelaremos)
+
+* :broccoli: [A maioria das pessoas não consegue identificar 10 legumes nesta foto — você consegue?](https://www.buzzfeed.com/br/audreyworboys/teste-identificar-legumes)
+
+
 ## Música
 
 * 🇪🇬 [Você sabe cantar Faraó inteira?](https://www.buzzfeed.com/br/gaiapassarelli/teste-letra-farao)
@@ -208,6 +217,8 @@
 * ao-live-action-cults)
 
 * :ghost: [Viva um dia bem trevoso e diremos com qual personagem da Família Addams você se parece](https://www.buzzfeed.com/br/victoriagasparowicz/teste-dia-trevoso-personagem-famlia-addams)
+
+* :house: [Qual caso bizarro do "Casos de Família" é você?](https://www.buzzfeed.com/br/saadmatheus/teste-qual-caso-bizarro-do-casos-de-familia-e-voce)
 
 
 ## Séries
