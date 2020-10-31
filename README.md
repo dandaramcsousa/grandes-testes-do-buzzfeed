@@ -167,6 +167,8 @@
 
 * :fries: [Escolha 5 produtos de fast food do mundo todo e revelaremos a sua data de nascimento exata](https://www.buzzfeed.com/br/spenceralthouse/escolha-5-produtos-de-fast-food-do-mundo-todo-e-revelaremos)
 
+* :broccoli: [A maioria das pessoas não consegue identificar 10 legumes nesta foto — você consegue?](https://www.buzzfeed.com/br/audreyworboys/teste-identificar-legumes)
+
 
 
 ## Música
