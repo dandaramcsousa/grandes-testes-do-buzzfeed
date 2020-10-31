@@ -166,6 +166,9 @@
 * 👑 [Julgue comidas de festa infantil e descubra que princesa da Disney é você](https://www.buzzfeed.com/br/luizougui/teste-comidas-festa-infantil-princesas-disney)
 
 
+* :bowl_with_spoon: [Monte uma refeição preguiçosa e diremos quão namorável você é] (https://www.buzzfeed.com/br/lizmrichardson/teste-monte-refeicao-diremos-namoravel)
+
+
 ## Música
 
 * 🇪🇬 [Você sabe cantar Faraó inteira?](https://www.buzzfeed.com/br/gaiapassarelli/teste-letra-farao)
