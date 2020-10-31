@@ -232,6 +232,9 @@
 
 * :house: [Qual caso bizarro do "Casos de Família" é você?](https://www.buzzfeed.com/br/saadmatheus/teste-qual-caso-bizarro-do-casos-de-familia-e-voce)
 
+* :vampire: [Quanto conhecimento aleatório de "Crepúsculo" você tem?](https://www.buzzfeed.com/br/ariaberry/teste-quantas-coisas-aleatorias-crepusculo-voce-sabe)
+
+
 
 ## Séries
 
