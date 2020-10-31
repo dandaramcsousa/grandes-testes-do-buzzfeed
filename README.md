@@ -52,6 +52,7 @@
 * :art: [Se você não for bem neste quiz sobre círculo cromático, precisa voltar para o ensino fundamental](https://www.buzzfeed.com/br/hannahmarder/teste-circulo-cromatico)
 
 
+
 ## Quem é você
 
 * :astronaut: [Quem é você jogando Among Us?](https://www.buzzfeed.com/br/priscilamendes/teste-quem-e-voce-jogando-among-us)
@@ -100,6 +101,9 @@
 * :heavy_dollar_sign: [Qual nota de Real é você?](https://www.buzzfeed.com/br/saadmatheus/teste-qual-nota-de-real-e-voce)
 
 * :nail_care::skin-tone-5: [Qual Gretchen é você?](https://www.buzzfeed.com/br/julianakataoka/qual-gretchen-e-voce)
+
+* :smiley_cat: [Responda 6 perguntas e descubra qual nome de pet brasileiro você é](https://www.buzzfeed.com/br/camilasa/teste-qual-nome-de-pet-brasileiro-voce-e)
+
 
 ## Você consegue acertar?
 
