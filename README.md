@@ -256,3 +256,5 @@
 * :hospital: [Qual personagem da série Ratched você é?](https://www.buzzfeed.com/br/michelelbird/teste-quem-e-voce-em-ratched)
 
 * :taxi: [Que mistura de personagem de Community com A Grande Família é você?] (https://www.buzzfeed.com/br/luizougui/teste-mistura-personagens-community-grande-familia)
+
+* :bat: [Escolha seus vilões e a gente diz que Batman é você!](https://buzzfeed.com.br/quiz/escolha-seus-viloes-e-a-gente-diz-que-batman-e-voce)
